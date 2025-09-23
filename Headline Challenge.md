@@ -1,6 +1,3 @@
-# Combined Extracted Content
-
-## Extracted Blocks
 
 ways to make passengers care about airline safety instructions =
 we made seatbelts more complicated so your listener to the fucking safety demonstration 
@@ -548,3 +545,20 @@ The Heyday of Hotcake-Selling Is Over
 Ten Irritating Habits of the Most Successful People You Know
 Wile E. Coyote Reviews the ACME Product Catalog
 As a Cyclist Arrested for DUI I’m Just Glad We’re Taking Bike Lanes Seriously
+
+
+ 2 Epic 2 Gilga: Revisiting Epic of Gilgamesh’s Failed Sequel
+ Are Star Trek and Star Wars the Same Movie? An Analysis
+ Message in a Bottle: Visit Our Exotic Island!
+ We Have Updated Our Privacy Policy by Doing Away With It
+ The Good, the Bad, and the Plenty: A Shakespearean Commercial Within a Commercial
+
+ Newfangled Tech Buzzwords for Aging Software Executives 
+
+ Bachelorette Party Cake Reviews by Marie Antoinette
+
+ I Am a Vampire and Nobody Invites Me Into House Parties Anymore
+
+ 3.1415 Real-Life Uses for the Quadratic Equation
+
+5 Police Report Regarding Robert De Niro Stuck in the Circus Mirror Maze
