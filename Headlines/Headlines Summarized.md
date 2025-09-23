@@ -20,21 +20,21 @@ other things
 updated list of things 
 updated list of what you can’t yell in a crowded theatre  = #best 
 
-fashion is not cyclical says flat earther% 
+fashion is not cyclical says flat earther%  #best #news
 
 please pay us $100 to deprive you of all sensation =
 coherence 
 cognizance 
 
-we regret adding a horniness feature to the mood ring =
+we regret adding a horniness feature to the mood ring = #candidate
 other emotions  we are suspending from the mood ring 
 
 scientists discover new emotion you’re suppressing %  
 
 this good deed is now being punished 
-report: good deed punished %
+report: good deed punished % #news
 
-to fight or flight: a quiz = (get feedback)
+to fight or flight: a quiz = (get feedback) #best
 
 hey doc it’s me achilles and uhhhh which heel was it again=
 surgeons notes on the successful achilles heel repair on our dear greek friend 
@@ -44,7 +44,7 @@ peeping tom going by thomas now  %
 
 weezers island in the sun written about epstein island %
 
-200 ways to spell chhannnukknah =
+200 ways to spell chhannnukknah = #candidate 
 
 kidz bop takes on the 
 kidz bop mom just hoping child doesn’t google 
@@ -54,12 +54,12 @@ kidz bop not woke enough
 
 how to get your race horse to piss less =
 
-Are Star Trek and Star Wars the Same Movie? An Analysis =
+Are Star Trek and Star Wars the Same Movie? An Analysis = #best
 
 message in a bottle to visit our exotic island! 
 Mess in a bottle: visit our exotic island! =
 
-we have updated our privacy policy by doing away with it =
+we have updated our privacy policy by doing away with it = #best 
 
 A dietitian’s guide of what’s good for the goose 
 An animal vets guide 
@@ -69,25 +69,25 @@ best ways to fold a fitted sheet
 i invented the fitted sheet and good luck folding this sucker 
 i vented the fotttd sheet and fuck you 
 i invented the fitted sheet and we’ve gone too far 
-i invented the fitted sheet and i’m sorry =
-scientist wins noble prize for figuring out his to fold a fitted sheet %
+i invented the fitted sheet and i’m sorry #candidate
+scientist wins noble prize for figuring out his to fold a fitted sheet % #news
 
 it’s time to eat some cheezits 
 i will eat these cheezits or my name isn’t earl cheese its the seventh
 what your favorite hat has in common with your favorite sock
 correlation between socks and feet
-scientists discover correlation between socks and feet size %
+scientists discover correlation between socks and feet size % #news 
 eat feet
 feet, feat, or feature
 
 a shakespearan commercial within a commercial = 
 
-king kong laments empire state building renovations %
+king kong laments empire state building renovations % #news
 king kong interrupts empire state building renovations
 king kong sued for interrupting empire state building renovations
 
 because of climate change it’s starting to feel like i’ll never kill that white whale
-climate change killed the while whale and honestly i’m not sure how to feel about it =
+climate change killed the while whale and honestly i’m not sure how to feel about it = #candidate
 How to kill your white whale
 
 theo epstein arrested at wrigley island %
@@ -96,9 +96,9 @@ i’m the unicycle and it’s a tragedy they aren’t allowing me into the x gam
 
 mental illnesses rebranded as job titles=
 
-mental breakdown? more like mental breakdancing says man clearly in crisis %
+mental breakdown? more like mental breakdancing says man clearly in crisis % #news 
 
-disco-golf is back!=
+disco-golf is back!= #best 
 
 disco discgolf not quite what we planned = 
 
@@ -106,7 +106,7 @@ as a cyclist who was just arrested for a dui i’m just glad we’re finally tak
 as a cyclist arrested for dui i’m just glad we’re finally taking bike lanes seriously=
 
 i’m steve jibs and please stop accidentally emailing me 
-complaints about the new iphone =
+complaints about the new iphone = #candidate 
 about apple ai
 for imac tech support
 (my apple watch is exploding)
@@ -115,11 +115,11 @@ pitching me ideas for a new apple ankle monitor
 places to bring your service ferret = 
 states ranked by friendliness to service ferrets
 
-an analysis of your favoite bands by a guy you just met at a party in a backwards hat wearing a radiohead shirt %
+an analysis of your favoite bands by a guy you just met at a party in a backwards hat wearing a radiohead shirt % #candidate
 
-guy who won’t stop talking about work failing to communicate what his job is %
+guy who won’t stop talking about work failing to communicate what his job is % #news 
 
-guy in band shirt surprisingly quiet during conversation about lead singers assault allegations%
+guy in band shirt surprisingly quiet during conversation about lead singers assault allegations% #news 
 
 claymation remake of schinder’s list not going so well%
 our claymation remake of schindler’s list is not going so well
@@ -133,10 +133,6 @@ the best days of selling hotcakes are behind us
 the fiery lucrative days of hotcake sales are nigh
 maybe these cakes would sell better if they weren’t so fucking cold =
 
-how settlers of catan is exactly like the donner party
-the settlers of catan donner party expansion is not going well =
-first look at the donner party docuseries starring an AI robin williams
-
 i’m just trying to learn how to play this game, i don’t care who’s on first 
 “who” just scored on a bunt because you were too fucking busy figuring out where he is
 what base he was on
@@ -147,11 +143,11 @@ Who and What Just scored on a bunt because you idiots were bickering
 
 fashion tips for princes who have been turend into frogs =
 
-shopping for your frog prince =
+shopping for your frog prince = #candidate 
 
-sick! new astrology sign just formed out of the hole ripped into the universe  %
+sick! new astrology sign just formed out of the hole ripped into the universe  % #news 
 
-playing the birthday song in reverse reveals satantic cult predicting job lennonw assassinatio  %
+playing the birthday song in reverse reveals satantic cult predicting job lennonw assassinatio  % #news 
 
 Sept 10
 (keep in mind: meta, analogy, parody, reference)
@@ -162,13 +158,13 @@ sports, podcast, lists, influencer promoted videos, movie reviews, comedy blog, 
 i’m your favorite comedian and please listen to my fifteenth new podcast =
 
 other people on the epstein list
-fictional characters that may have been on the epstein list %
+fictional characters that may have been on the epstein list % #news 
 scrooge mcduck responds to allegations of being on the epstein list
 i am not a nepobaby: donald duck responds to allegations of preferential treatment by his father scrooge mcduck
 
 tragic: this mockumentary is just the news
 mocukmentary too real to be funny
-report: joke too real to be funny (otehrwise very solid)%
+report: joke too real to be funny (otehrwise very solid)% #news 
 
 ranking quotes from the 90s
 i’m still hip, except for my broken hip: rejected rodney dangerfield jokes
@@ -516,12 +512,12 @@ Sorry Kids, This Magic School Bus is No Longer Allowed on Field Trips Into Ralph
 I’m Your Browser Tab That’s Been Open for Two Years and Please Let Me Die
 David Attenborough Narrates Someone Staking Out the Only Charging-Accessible Coffee Shop Table
 My Five-Year Plan for Getting Out of This Well
-I Stole Your Dumb Identity and You Can Have This Shit Back
+I Stole Your Dumb Identity and You Can Have This Shit Back #goahead 
 
 This Skeleton Halloween Costume Has Nothing To Do With My Failing Marriage
-Nine of Ten Dentists Agree: The Tenth Dentist Must Be Stopped
+Nine of Ten Dentists Agree: The Tenth Dentist Must Be Stopped #goahead 
 If We Die I Want You To Know I Don’t Regret the Plunger Incident
-God Forgive Me, I Love Someone Identical to My Boyfriend but With Glasses: The Diary of Lois Lane
+God Forgive Me, I Love Someone Identical to My Boyfriend but With Glasses: The Diary of Lois Lane #goahead 
 This Summit Cola Iced Mango Lemon Blast Was Supposed To Be for Two
 
 I’m a Medieval Knight and I Generally Prefer the Tuxedo of Armor
@@ -534,15 +530,15 @@ My Wife Poisoned Me and Fucked My Brother: Rejected Rodney Dangerfield Jokes
 You’re Coveting Way Too Much of Your Neighbors’ Shit so I’m Adding Two More
 Misquotes of Your Favorite Movies by Hans Olo
 HR Demands a Stronger Password To Open This Cave Than “Open Sesame”
-My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend
+My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend #goahead
 Proposed Replacements for the NBA Sneaker Squeak
 Ways To Say Goodbye After Running Into Friends You've Already Said Bye To
 Frequently Asked Questions About Answering These Riddles Three
 I Came Here To Eat Ass and Chew Bubble Gum and I’m So Sorry for Not Considering the Order of Operations
 Welcome to the World, Son, You’re Gonna Need To Save a Lot of Spare Shirt Buttons
-Disco-Golf Is Back!
+Disco-Golf Is Back! #goahead 
 The Heyday of Hotcake-Selling Is Over
-Ten Irritating Habits of the Most Successful People You Know
+Ten Irritating Habits of the Most Successful People You Know #goahead
 Wile E. Coyote Reviews the ACME Product Catalog
 As a Cyclist Arrested for DUI I’m Just Glad We’re Taking Bike Lanes Seriously
 
