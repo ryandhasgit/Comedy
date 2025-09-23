@@ -11,10 +11,14 @@
             "id": "8f3f9381c2aa7d37",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
+              "type": "markdown",
+              "state": {
+                "file": "Beat Bin/Trek Beats.md",
+                "mode": "source",
+                "source": false
+              },
               "icon": "lucide-file",
-              "title": "New tab"
+              "title": "Trek Beats"
             }
           }
         ]
@@ -94,7 +98,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "FARTING TEHEHE.md",
+            "file": "Beat Bin/Trek Beats.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -150,6 +154,14 @@
   },
   "active": "8f3f9381c2aa7d37",
   "lastOpenFiles": [
+    "Drafts/Star Trek & Star Wars.md",
+    "Query Tests.md",
+    "Drafts",
+    "Beat Bin/Trek Beats.md",
+    "Beat Bin",
+    "Headlines/Alex Baia Challenge.md",
+    "Headlines/Headlines Summarized.md",
+    "Headlines",
     "Alex Baia Challenge.md",
     "Untitled.md",
     "Headline Challenge.md",
