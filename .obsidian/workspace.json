@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Beat Bin/Trek Beats.md",
+                "file": "Query Tests.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Trek Beats"
+              "title": "Query Tests"
             }
           }
         ]
@@ -171,18 +171,18 @@
       "obsidian-plugin-tagged-documents-viewer:Tagged Documents Viewer": false
     }
   },
-  "active": "cc9b5c151ae2ca95",
+  "active": "eeca035a49b6f0a7",
   "lastOpenFiles": [
-    "Bullshit.md",
+    "Testing.md",
+    "Query Tests.md",
+    "Draft Map.md",
     "Beat Bin/Trek Beats.md",
+    "Bullshit.md",
     "Drafts/Star Trek & Star Wars.md",
     "Beat Bin",
     "Headlines/Headlines Summarized.md",
     "Drafts",
     "Headlines/Alex Baia Challenge.md",
-    "Dataview test.md",
-    "Testing.md",
-    "Draft Map.md",
     "Headlines",
     "FARTING TEHEHE.md",
     "Test.md",
