@@ -20,4 +20,6 @@ introducing the ai cat 
 
 a cat that still pisses in your shoes 
 
-a cat that pisses  in your shoes with shocking realism
+an ai cat that pisses  in your shoes with shocking realism
+
+hey pal, i'm eating cheese here
