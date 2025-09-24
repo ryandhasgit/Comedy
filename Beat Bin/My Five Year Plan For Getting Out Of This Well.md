@@ -88,9 +88,11 @@ teach the birds to  communicate with humans in hopes that they’ll find lassy o
 
 fight off a bird revolt 
 
-successfully repel the bird coup but in the process destroying the authoritarian theocracy i’ve built 
+successfully repel the bird coup, in the process destroying the authoritarian theocracy i’ve built 
 
 mentally update my resume  to include “bird god” as a job title for three years, at company self-employed 
+
+under communication skills add "talking with animals"
 
 a bird i sent out before the war returns with a telephone  
  
