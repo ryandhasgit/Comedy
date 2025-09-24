@@ -104,10 +104,12 @@ i start punching in passwords
 year x: finally brute force the password, which turns out to be TigOlBitties69
 
 use the phone to download microsoft teams and set an out of office reply 
+use the phone to download teams and respond to 100,000 unread messages and emails
 
 call the authorities and ask for help
 
 realize i don’t know where i am 
+provide an unsatisfactor
 
 hear them sarcastically say they’ll send a search party before hanging up 
 
