@@ -92,7 +92,7 @@ successfully repel the bird coup, in the process destroying the authoritarian th
 
 mentally update my resume  to include “bird god” as a job title for three years, at company self-employed 
 
-under communication skills add "talking with animals"
+on my resume, under communication skills add "talking with animals" and under job title add "bird god"
 
 a bird i sent out before the war returns with a telephone  
 
