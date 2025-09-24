@@ -16,7 +16,7 @@ Since my wife left, I haven’t gotten much action. Even my dog won’t kiss me.
 
 My wife---listen to this---she hates my guts, probably because of all the prostitutes and that I tried to sell her into slavery. She hates me so much she poisoned me with a toxin found only in goldfish. I said, it’s bad enough you tried to kill me, but you gotta off my aquarium too? 
 
-I tell ya, I don’t get no respect, not from my wife, not form my dog, from my neighbor, the post office, this audience, nobody. Sometimes, at night I sit by the phone with a fast action single pump revolver and think, "The next one of youse to call, that’s who's getting this bullet." Lucky for them, nobody ever calls.
+I tell ya, I don’t get no respect, not from my wife, not form my dog, from my neighbor, the post office, this audience, nobody. Sometimes, at night I sit by the phone with a fast action single pump revolver and think, "The next one of youse to call, that’s who's getting this bullet." Lucky for them, nobody ever calls!
 
 Oh boy, is it tough being a comedian. I'm constantly broke. My wife left me for my neighbor. I'm not getting any respect. So I tried selling my shit at a pawn shop. The guy said, you can't sell a dead goldfish, buddy! How about that? So I offered him my mother's gold tooth. He said, I thought your mother is alive? See, I pried it outta her mouth last month during her hysterotomy. She got her tubes tied, even though she's elderly, because one day I came around asking for money and she wouldn't lend me any, even if it meant I'd lose my house, even with a gun in her face. She said she wished I'd never been born and got 'em tied up anyway!
 
