@@ -186,4 +186,9 @@ Jackson hole
 
 get pulled out of the well by a fisherman whose line overshot the nearby river 
 
+-------
+## Theory
+
+five year plan is misplaced focus
+subtext is relentless self-improvement and making yourself marketable to employers
 
