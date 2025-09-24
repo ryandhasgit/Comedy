@@ -95,7 +95,8 @@ mentally update my resume  to include “bird god” as a job title for three ye
 under communication skills add "talking with animals"
 
 a bird i sent out before the war returns with a telephone  
- 
+
+use penetration-testing knowledge from my Three Week Seminar Certification on Cyber Security to brtue force passwords
 i start punching in passwords 
 
 year x: finally brute force the password, which turns out to be TigOlBitties69
