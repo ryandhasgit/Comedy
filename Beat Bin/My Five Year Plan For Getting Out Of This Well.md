@@ -171,6 +171,7 @@ find she has taken another lover
 the front man to a classic rock cover band 
 reluctantly enter into polyamorous relationship with rocksanne and boulder steve 
 charlie charlestone
+livingstone
 find fulfillment in unconventional love, community
 
 commute to work (climb out of the well)
@@ -190,7 +191,7 @@ consider how at least sisyphus had a hill to climb
 The Well 
 stone fever 
 Stonehenge 
-grander canton 
+grander canyon 
 yellowstone 
 sand diego 
 charlestone
