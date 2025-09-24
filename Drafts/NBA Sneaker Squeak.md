@@ -1,4 +1,4 @@
 Proposed Replacements for the NBA Sneaker Squeak
 
-New Text Message Noti
+New Text Message Notification Sounds
 
