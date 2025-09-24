@@ -78,13 +78,15 @@ befriend birds with worms
 
 train the birds on a language i invented 
 
+add "talks with animals" under "communication skills" in my resume
+
 convince the birds i am a god 
 
 develop a bird society that uniquely worships me
 
 teach the birds to  communicate with humans in hopes that they’ll find lassy or another human 
 
-fight for the bird revolt 
+fight off a bird revolt 
 
 successfully repel the bird coup but in the process destroying the authoritarian theocracy i’ve built 
 
