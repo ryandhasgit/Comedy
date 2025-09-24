@@ -161,7 +161,7 @@ achieve title of Intermediate Level Sales consultant
 
 look upon the masses with a skeptical gaze that sees through their worries and concerns 
 living a life so insulated from the worries of the well 
-realize the false virtues and fake living to Or-Wellian life 
+realize the false virtues and fake living to OrWellian life 
 realize non-well life isn’t for me 
 
 climb back in the well  
@@ -178,7 +178,7 @@ return at night to my rock family
 
 sleep tight 
 
-wake  up content, having found a work-Well balance
+wake  up content, having found a work-well balance
 
 decide to take a sick day and lie about having pebble fever 
 
