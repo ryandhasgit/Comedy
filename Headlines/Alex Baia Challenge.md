@@ -217,7 +217,7 @@ dinosaur fossils kinda look like they’re 69in’
 
 tips to domesticating your pre-jurassic pterodactyl 
 we sent neil de grasse tyson back in time to see what would happen
-we tossed a few scientists into a worm hole and they didtn’t even end the universe
+we tossed a few scientists into a worm hole and they didtn’t even end the universe #news 
 
 empty your pockets there’s no time to explain
 please, your eye lids 
