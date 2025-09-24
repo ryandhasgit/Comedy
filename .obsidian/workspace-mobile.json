@@ -27,12 +27,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Drafts/NBA Sneaker Squeak.md",
+                "file": "Headlines/Headlines Summarized.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "NBA Sneaker Squeak"
+              "title": "Headlines Summarized"
             }
           }
         ],
@@ -113,7 +113,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Beat Bin/Trek Beats.md",
+            "file": "Headlines/Headlines Summarized.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -169,6 +169,7 @@
   },
   "active": "f217024e835e58a7",
   "lastOpenFiles": [
+    "Drafts/NBA Sneaker Squeak.md",
     "Query Tests.md",
     "IMG_3780.jpg",
     "Headlines/Alex Baia Challenge.md",

@@ -54,7 +54,7 @@ kidz bop not woke enough
 
 how to get your race horse to piss less =
 
-Are Star Trek and Star Wars the Same Movie? An Analysis = #best
+Are Star Trek and Star Wars the Same Movie? An Analysis = #best #goahead 
 
 message in a bottle to visit our exotic island! 
 Mess in a bottle: visit our exotic island! =
@@ -87,7 +87,7 @@ king kong interrupts empire state building renovations
 king kong sued for interrupting empire state building renovations
 
 because of climate change it’s starting to feel like i’ll never kill that white whale
-climate change killed the while whale and honestly i’m not sure how to feel about it = #candidate
+climate change killed the while whale and honestly i’m not sure how to feel about it = #candidate #best
 How to kill your white whale
 
 theo epstein arrested at wrigley island %
@@ -143,7 +143,7 @@ Who and What Just scored on a bunt because you idiots were bickering
 
 fashion tips for princes who have been turend into frogs =
 
-shopping for your frog prince = #candidate 
+shopping for your frog prince = #candidate #best
 
 sick! new astrology sign just formed out of the hole ripped into the universe  % #news 
 
@@ -283,9 +283,9 @@ unless you count stolen glances from wistful strangers
 
 i’m the toothfairty and please stop swallowing your denchers #candidates
 
-i’m oscar the grouch and now because of SSRIs, i am neither grouchy or able to ejaculate #candidates
+i’m oscar the grouch and now because of SSRIs, i am neither grouchy or able to ejaculate #candidates #best 
 
-the first rule of book club is no fights #candidates 
+the first rule of book club is no fights #bsst #candidates 
 
 sorry kids, this school bus is no longer allowed on field trips into ralphs asshole 
 Sorry Kids, This School Bud is No Longer Allowed on Field Trips Into Ralph’s Asshole #best #candidates 
@@ -384,7 +384,7 @@ dispelling the myth that french restaurants
 are run by a guy being led around by  a rat in his hat 
 a rat-controlled marionette =
 
-old macdonald responds to allegations of inventing the big mac =
+old macdonald responds to allegations of inventing the big mac = #best
 
 Candidates
 old macdonald responds to allegations of inventing the big mac =
