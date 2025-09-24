@@ -1,0 +1,127 @@
+## Jokes
+
+My wife, let me tell ya. She hates my guts. She hates me so much, she poised my soup with a rare toxin found only in past expiration cat food. I tell ya, I tell ya, I get no respect
+
+I get no respect. Like that song. You know that song? R-E-S-P-E-C-T.  I’m pretty sure they don’t even spell the word correctly. You ever notice how it sounds like there’s no E? Just RESPCT? That’s the kinda respect I get. I tell ya. #good
+
+i tell ya the truth, my wife and i never have sex. i tell her i wanna do foreplay. she says, you’re lucky enough to be getting one-play!  #good
+
+ya know, it’s tough being with my wife. i tell ya, she’s one of a kind. that’s what they said about ted bundy. no respect
+
+ya know, it’s tough being with my wife but she’s one of a kind. and that kind is: a cunt
+and that kind is: a lunatic
+yeah, kinda nuts!
+yeah, she’s kinda a bitch!
+
+ya know, my bitch wife, she left me. 
+
+ya know, i’m no prize myself. i once went to a bachelor auction. they couldn’t sell me for pennies. i wound up having to pay the girl to take me on a date! so ya know, just another friday night. #good
+
+listen, i’m not finding much respect lately. i asked my neighbor, hey, you seen my wife lately? and he said, not really, i was wearing a blindfold the whole time! #good 
+
+
+my wife, she’s great. i was saying bye to her the other day. i said, hey honey, see ya later! she replied, i’d like to see other people later. then the bank froze all my credit cards. #good 
+
+i can’t relax, i tell ya. even my dog won’t hang out with me. 
+
+listen, i get my respect. i aske dmy neighbor for some money. he said, i wouldn’t lend you money if i had any. i said, listen pal, it’s not my fault i’m a comedian in a dead end job with a wife who fucks his neighbor, gimme some dough. and then he turned around and fucked my wife. anybody? anybody? #ok
+
+
+i tell ya, things have been tense with my wife ever since she lef tme for my neighbor.
+
+i tell ya, i don’t get no respect, not from my wife, not form my dog, from my neibhgor, my neighbor’s cat, this audience, my mother, my brother. nobody. no respect. sometimes i sit by the phone with a gun at night, thinking, alright, the next one-a youse to call, i'll show ya some respect. that’s who's getting this bullet. lucky for them nobody ever calls!
+
+i mean, my wife she’s not that smart. she’s no looker, either. 
+
+hey, why’s everybody laughin’ here? ain’t you supposed to be my surgeons? doc, you gonna ever pull these wires outta me? i feel like a car battery in this thing. i mean, i’ve got more cords here than a rock band, i teel ya. i mean, i’d love to sign these liability wavers, i tell ya, but my wife’s the power of attorney. how you think she got the house int he divorce? #good 
+
+listen, you guys have been great. i’m gonna go into a coma now. #good 
+
+but i gotno power of attorney here
+she’s no looker
+i mean last week was rought, you kidding, i mean last week
+
+i tell ya
+ya know
+i mean
+pal
+listen
+oh boy
+buddy
+you kidding
+is she something
+^filler-words
+
+my wife, she’s great. maybe you guys could meet her some time. it’d give me an excuse to see her again. #ok
+
+she cut me off, actually. threw my stuff into the street, i tell ya. i said, hey i am not getting much respect int his situation, i feel like, and she, oh boy is she something, she #ok
+
+my wife, she’s great. until you meet her
+
+since my wife left me for my neighbor, i haven’t had much luck. even my dog won’t kiss me. i said, hey pal, half the time i see ya licking your balls, you tell me mine ain’t good enough for ya too? #good
+
+listne, i get no respect. my wife, you couldn’t sell her. i tried. they won’t even take her into slavery ini indonesia. they said, hey, maybe try the fourth world.  #good 
+
+my mom thinks i’m great though, i tell ya. she says, one day, you’re gonna make a lucky woman very happy. well, i’ve been on a lotta dates with a lotta women and i’ve made many of them happy, by leaving! #ok
+
+my ex wife, i tell ya, i made her happy. i got her pregnant at the age of 15. i told her she was the only one for me. i said, baby, stick with me. she said, stick with you? i’m 15! this is my whole life! so i took her to her prom. i tell ya, not a lot of respect there. not a lot of child brides there, mostly just kids. and even the kids, they don’t respect ya
+
+my old man, he was a drag too. i said, pop, let’s play catch! he said, alright champ, i’ll start, then 
+he ran outta the house and got hit by a bus
+he ran outta the house and drove his car into the ocean
+into a bank
+he went out for a pack of smokes and robbed a bank and got shot by the mob
+and was murdered by the mafia 
+went out for a pakc of smokes and moved to kenya #ok
+
+ya know, i don’t get no respect. i tell ya that? my wife, she poisond my soup with a rare toxin found only in goldfish. i said, it’s bad enough you tried to kill me, but you gotta off my pet fish too? #good
+off my pet sir camelot too?
+off sir camelot too?
+in latvian sea urchans. 
+
+it’s tough being a comedian .i’m constantly broke. i’m not getting any respect. i tried to sell some of my shit at a pawn shop. guy said, no way this godlfish is made of gold. i said, hey, that’s my mother’s gold tooth. he said, i didn’t know your mother is dead. i said, my mother’s not dead, i pried it outta her mouth after she got her tubes tied. he said, isn’t your mom elderly? i said, yeah, but i came home and asked her for money, because i’m so broke, and she had ‘em tie ‘em up anyway! he said, this gold is worth $100. it’s your mother. i’ll give ya $20. #ok
+
+
+
+i ain’t got no next of kin, my emergency contact is my dog, even he wont’ anwer to his name let alone my calls.
+
+
+
+he said your mother? $20
+
+ i pried it outta her mouth 
+
+they pried it out of her skull in the holocaust. 
+
+i tell ya the truth, my wife and i have never been about 
+
+ya know
+
+--------
+
+## Structure 
+no respect
+
+my wife sucks
+
+my wife wants to see other people
+
+my wife fucks my neighbor
+
+my neigh won’t lend me money and fucks my wife
+
+i try to sell my wife into slavery
+
+my wife leaves me
+
+my dog won’t lick my balls
+
+i sit by the phone at night with a revolver 
+
+my life tried to kil me
+
+i’m the hospital
+
+the doctor fucks my wife
+
+ending is: i’ve actually been in the hospital this whole time, the audience are the nurses, 
