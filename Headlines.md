@@ -28,4 +28,6 @@ New uses for the waffle iron
 alternate uses for the waffle iron you've never used
 
 gifts you can return from your wedding registry
-for our wedding registry we're ask
+for our wedding registry we're asking for cash
+please include receipts with your gifts from our wedding registry
+
