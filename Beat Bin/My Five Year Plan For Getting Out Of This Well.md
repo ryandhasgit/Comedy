@@ -45,12 +45,16 @@ pet rock gives birth to a son
 
 
 year 2: declare myself king of the hole 
+promote myself to king of the hole
+climb the company ladder, albeit not a real ladder
 
 year 3: pet rock son goes off to college at Boulder 
 
 dig a hole further down to see if theres a way to go up 
 
 scream
+
+add problem solving skills to mental resume/to resume i've engraved into the wall of the well
 
 year 4: pray 
 
