@@ -19,6 +19,7 @@ ya know, i’m no prize myself. i once went to a bachelor auction. they couldn�
 
 listen, i’m not finding much respect lately. i asked my neighbor, hey, you seen my wife lately? and he said, not really, i was wearing a blindfold the whole time! #good 
 
+left me because i sleep with prostutes 
 
 my wife, she’s great. i was saying bye to her the other day. i said, hey honey, see ya later! she replied, i’d like to see other people later. then the bank froze all my credit cards. #good 
 
@@ -29,7 +30,7 @@ listen, i get my respect. i aske dmy neighbor for some money. he said, i wouldn�
 
 i tell ya, things have been tense with my wife ever since she lef tme for my neighbor.
 
-i tell ya, i don’t get no respect, not from my wife, not form my dog, from my neibhgor, my neighbor’s cat, this audience, my mother, my brother. nobody. no respect. sometimes i sit by the phone with a gun at night, thinking, alright, the next one-a youse to call, i'll show ya some respect. that’s who's getting this bullet. lucky for them nobody ever calls!
+i tell ya, i don’t get no respect, not from my wife, not form my dog, from my neibhgor, my neighbor’s cat, this audience, my mother, my brother. nobody. no respect. sometimes i sit by the phone with a gun at night, thinking, alright, the next one-a youse to call, i'll show ya some respect. that’s who's getting this bullet. lucky for them nobody ever calls! #good
 
 i mean, my wife she’s not that smart. she’s no looker, either. 
 
@@ -80,8 +81,13 @@ off sir camelot too?
 in latvian sea urchans. 
 
 it’s tough being a comedian .i’m constantly broke. i’m not getting any respect. i tried to sell some of my shit at a pawn shop. guy said, no way this godlfish is made of gold. i said, hey, that’s my mother’s gold tooth. he said, i didn’t know your mother is dead. i said, my mother’s not dead, i pried it outta her mouth after she got her tubes tied. he said, isn’t your mom elderly? i said, yeah, but i came home and asked her for money, because i’m so broke, and she had ‘em tie ‘em up anyway! he said, this gold is worth $100. it’s your mother. i’ll give ya $20. #ok
+you can't sell a dead goldfish 
 
+Oh boy, is it tough being a comedian. I'm constantly broke. My wife left me for my neighbor. I'm not getting any respect. So I tried selling my shit at a pawn shop. The guy said, you can't sell a dead goldfish, buddy! How about that? So I offered him my mother's gold tooth. He said, I thought your mother is alive? I told him that I pried it from her mouth last month when she got her tubes tied. The guy said, ain't your mother elderly? I explained that I came home one day to borrow money, cause I'm so broke and ugly, and she wouldn't lend me any, even if it meant I'd lose my house, even with a gun in her face. She screamed and said she wished I'd never been born and got 'em tied up anyway!
 
+Oh boy, is it tough being a comedian. I'm constantly broke. My wife's fucking my neighbor. I'm not getting any respect. So I tried selling my shit at a pawn shop. The guy said, you can't sell a dead goldfish, buddy! How about that? So I offered him my mother's gold tooth. He said, I thought your mother is still alive? I told him that I pried it from her gaping trap when she got her tubes tied. The guy said, ain't your mother elderly? I explained that I came home one day to borrow some money, cause I'm so broke, and she wouldn't lend me any, even with a gun in her face. She said she wished I'd never been born and got 'em tied up just in case!
+
+We got into a big fight and I waved a gun in her face. She still wouldn't give me any. She told me I was a failure and  wished I'd never been born and had her tubes tied up just in case! 
 
 i ain’t got no next of kin, my emergency contact is my dog, even he wont’ anwer to his name let alone my calls.
 
