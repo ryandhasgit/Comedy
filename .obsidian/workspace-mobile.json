@@ -4,21 +4,21 @@
     "type": "split",
     "children": [
       {
-        "id": "fe0a9d4286c9c088",
+        "id": "4e12c9c966fe883f",
         "type": "tabs",
         "children": [
           {
-            "id": "8c5a73b3cbb4dcd8",
+            "id": "8f3f9381c2aa7d37",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Headline Challenge.md",
+                "file": "Beat Bin/NBA Sneaker Squeak beats.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Headline Challenge"
+              "title": "NBA Sneaker Squeak beats"
             }
           }
         ]
@@ -98,7 +98,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "FARTING TEHEHE.md",
+            "file": "Beat Bin/Trek Beats.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -152,10 +152,20 @@
       "bases:Create new base": false
     }
   },
-  "active": "8c5a73b3cbb4dcd8",
+  "active": "8f3f9381c2aa7d37",
   "lastOpenFiles": [
-    "FARTING TEHEHE.md",
+    "Beat Bin/Trek Beats.md",
+    "Drafts/Star Trek & Star Wars.md",
+    "Query Tests.md",
+    "Drafts",
+    "Beat Bin",
+    "Headlines/Alex Baia Challenge.md",
+    "Headlines/Headlines Summarized.md",
+    "Headlines",
+    "Alex Baia Challenge.md",
+    "Untitled.md",
     "Headline Challenge.md",
+    "FARTING TEHEHE.md",
     "gahahaha.md"
   ]
 }
