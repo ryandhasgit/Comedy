@@ -109,7 +109,7 @@ use the phone to download teams and respond to 100,000 unread messages and email
 call the authorities and ask for help
 
 realize i don’t know where i am 
-provide an unsatisfactor
+provide an unsatisfactory answer to where i am, akin to "a well"
 
 hear them sarcastically say they’ll send a search party before hanging up 
 
@@ -120,6 +120,7 @@ smart ladder tech-support automated system
 
 have tech support ask if i have tired turning the ladder back on or off
 
+pound zero on the keypad until my finger bleeds
 have the tech support schedule a technician to troubleshoot my ladder 
 
 find out they’re going to charge me $100 to come 
