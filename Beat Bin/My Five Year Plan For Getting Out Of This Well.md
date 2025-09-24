@@ -131,7 +131,7 @@ check linked in before the phone dies for job listings under the assumption i’
 
 use the carcasses form the bird  revolt to attract more worms
 
-start doing HIIT  workouts with my pet work while eating worms for protein 
+start doing HIIT  workouts with my pet rock while eating worms for protein 
 
 get strong enough to climb up the wall of the well
 
