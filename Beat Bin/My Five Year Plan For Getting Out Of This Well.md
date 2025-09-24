@@ -12,6 +12,7 @@ mentally update resume
 
 scream go get help lassie 
 try to call lassie 
+see if lassie has an available status on Teams
 
 continue eating worms and drinking storm water 
 
