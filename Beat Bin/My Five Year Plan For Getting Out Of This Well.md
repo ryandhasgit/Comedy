@@ -25,8 +25,10 @@ the rain filled it almost enough to get to the top
 
 scream until someone hears me 
 
+draft a CV explaining my resume gap that does'nt involve...
 think of ways to explain my resume gap that doesn’t involve admitting i fell into a well chasing a squirrel with $5 bill in its mouth 
 
+hire an assistant, a pet rock...
 create a pet rock out of boredom to keep me company 
 
 name pet rock rocksanne
