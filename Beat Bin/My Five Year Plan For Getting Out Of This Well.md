@@ -34,7 +34,7 @@ create a pet rock out of boredom to keep me company
 
 name pet rock rocksanne
 
-decide to put “self-employed” x on my resume to explain the gap 
+decide to put “self-employed” x on my resume to explain the gap just before the phone dies
 
 
 fall in love with pet rock 
