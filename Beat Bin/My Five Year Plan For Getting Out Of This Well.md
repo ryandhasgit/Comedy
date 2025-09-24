@@ -173,6 +173,8 @@ decide to take a sick day and lie about having pebble fever
 
 set out of office reply: off to the well! 
 
+consider how at least sisyphus had a hill to climb
+
 The Well 
 stone fever 
 Stonehenge 
@@ -190,5 +192,6 @@ get pulled out of the well by a fisherman whose line overshot the nearby river
 ## Theory
 
 five year plan is misplaced focus
-subtext is relentless self-improvement and making yourself marketable to employers
+subtext is about relentless self-improvement and making yourself marketable to employers beyond what is reasonable
+ he honestly 
 
