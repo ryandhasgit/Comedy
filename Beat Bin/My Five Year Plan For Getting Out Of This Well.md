@@ -95,6 +95,8 @@ mentally update my resume  to include “bird god” as a job title for three ye
 on my resume, under communication skills add "talking with animals" and under job title add "bird god"
 
 a bird i sent out before the war returns with a telephone  
+provide a feast of worms commiserate with a heroes welcome to the bird who returns...
+thank returning bird for trusting my managerial/delegation skills
 
 use penetration-testing knowledge from my Three Week Seminar Certification on Cyber Security to brtue force passwords
 i start punching in passwords 
