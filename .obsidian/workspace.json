@@ -4,21 +4,21 @@
     "type": "split",
     "children": [
       {
-        "id": "162f47bc2d2a428c",
+        "id": "e5c920b4cf70bfec",
         "type": "tabs",
         "children": [
           {
-            "id": "38c7bb8e833795ca",
+            "id": "e5591136f8411408",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Drafts/Rodney Draft.md",
+                "file": "Headlines.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Rodney Draft"
+              "title": "Headlines"
             }
           }
         ]
@@ -165,40 +165,44 @@
       "canvas:Create new canvas": false,
       "daily-notes:Open today's daily note": false,
       "templates:Insert template": false,
-      "command-palette:Open command palette": false,
       "bases:Create new base": false,
+      "command-palette:Open command palette": false,
       "github-sync:Sync with Remote": false
     }
   },
-  "active": "38c7bb8e833795ca",
+  "active": "e5591136f8411408",
   "lastOpenFiles": [
-    "Untitled.md",
-    "Drafts/Star Trek & Star Wars.md",
-    "my five year plan for getting out of this well.md",
     "Drafts/Rodney Draft.md",
-    "Headlines.md",
+    "Untitled.md",
     "Beat Bin/Diaper Hunk.md",
-    "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
+    "my five year plan for getting out of this well.md",
     "Notes.md",
     "Query Tests.md",
-    "Beat Bin/Trek Beats.md",
-    "Dikkers/Funny in a Flash.md",
+    "Headlines.md",
     "Beat Bin/Riddles Three.md",
-    "Beat Bin/NBA Sneaker Squeak beats.md",
+    "Drafts/Star Trek & Star Wars.md",
     "Drafts/NBA Sneaker Squeak.md",
+    "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
     "Random/big bad wolf.md",
     "Random",
-    "Dikkers",
-    "Testing.md",
-    "Draft Map.md",
-    "Bullshit.md",
-    "Beat Bin",
     "Headlines/Headlines Summarized.md",
-    "Drafts",
     "Headlines/Alex Baia Challenge.md",
     "Headlines",
-    "FARTING TEHEHE.md",
+    "Drafts",
+    "Dikkers/Funny in a Flash.md",
+    "Dikkers",
+    "Beat Bin/Trek Beats.md",
+    "Beat Bin/NBA Sneaker Squeak beats.md",
+    "Beat Bin",
+    "Trek Beats.md",
+    "Star Trek & Star Wars.md",
+    "Headline Challenge.md",
     "Test.md",
+    "Untitled.canvas",
+    "Untitled 1.md",
+    "Untitled",
+    "FARTING TEHEHE.md",
+    "Draft Map.md",
     "gahahaha.md"
   ]
 }
