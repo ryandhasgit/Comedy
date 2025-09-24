@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Beat Bin/Diaper Hunk.md",
+                "file": "Drafts/Rodney Draft.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Diaper Hunk"
+              "title": "Rodney Draft"
             }
           }
         ]
@@ -172,8 +172,9 @@
   },
   "active": "e5591136f8411408",
   "lastOpenFiles": [
-    "Notes.md",
     "Beat Bin/Diaper Hunk.md",
+    "my five year plan for getting out of this well.md",
+    "Notes.md",
     "Query Tests.md",
     "Headlines.md",
     "Beat Bin/Riddles Three.md",
