@@ -211,5 +211,6 @@ get pulled out of the well by a fisherman whose line overshot the nearby river
 five year plan is misplaced focus
 subtext is about relentless self-improvement and making yourself marketable to employers beyond what is reasonable
  he honestly can't even rest when he's in a well, always has to be planning
+ maybe begin with focusing only on hustle-grind culture misplaced focus and then work in more well stuff
 ^theory
 
