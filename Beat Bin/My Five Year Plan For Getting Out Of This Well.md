@@ -191,6 +191,7 @@ consider how at least sisyphus had a hill to climb
 name well Jackson Hole 
 
 get sued by Wyoming Tourism Bureau for using the name of a famous mountain resort, Jackson Hole
+for stealing the name "Jackson Hole"
 
 The Well 
 stone fever 
