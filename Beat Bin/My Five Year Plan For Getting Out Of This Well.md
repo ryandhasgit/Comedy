@@ -47,6 +47,7 @@ pet rock gives birth to a son
 year 2: declare myself king of the hole 
 promote myself to king of the hole
 climb the company ladder, albeit not a real ladder
+climb the company ladder and get promoted to king of the hole (alebit not a real ladder)
 
 year 3: pet rock son goes off to college at Boulder 
 
