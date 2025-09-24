@@ -24,3 +24,8 @@ an ai cat that pisses  in your shoes with shocking realism
 
 hey pal, i'm eating cheese here
 
+New uses for the waffle iron
+alternate uses for the waffle iron you've never used
+
+gifts you can return from your wedding registry
+for our wedding registry we're ask
