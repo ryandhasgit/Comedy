@@ -14,7 +14,7 @@ scream go get help lassie
 try to call lassie 
 see if lassie has an available status on Teams
 
-focus on organic lunch meals instead of eating out:
+focus on organic lunch meals instead of eating out by eating...
 continue eating worms and drinking storm water 
 
 hope the rain fills it enough to get to the top
