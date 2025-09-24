@@ -170,6 +170,7 @@ apologize to rocksanne for leaving her
 find she has taken another lover 
 the front man to a classic rock cover band 
 reluctantly enter into polyamorous relationship with rocksanne and boulder steve 
+charlie charlestone
 find fulfillment in unconventional love, community
 
 commute to work (climb out of the well)
