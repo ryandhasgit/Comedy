@@ -80,15 +80,15 @@ signs you need soup
 four score and seven years ago: an alternate universe where lincoln is a shoe
 
 transcript of my inner monologue during a conversation where i stopped listening five minutes ago
-my inner-monologue five minutes into a conversation i stopped listening to
+my inner-monologue five minutes into a conversation i stopped listening to"Could you repeat that?" i say for the third time, my (inner) monologue 
+"Sure" and other ways to lie about hearing someone
+hearing what someone said
+
 
 my favorite sue (sp?) chef explained
 this restaurant drama features real meals
 leaked script for the upcoming pilot of X
 
-"Could you repeat that?" i say for the third time, my (inner) monologue 
-"Sure" and other ways to lie about hearing someone
-hearing what someone said
 
 to save time, everyone is being renamed alex
 to save time, management as renamed everyone "alex"
