@@ -105,3 +105,9 @@ introducing the left-handed pizza
 pizza cutter
 
 turn signals are optional
+i had a very good reason for running the red light, let me just get it out of my glove compartment
+did you want my license and registration to my cobra
+
+what do you mean this cobra doesn't have a birth certificate
+what do you mean this kitten doesn't have a social security number
+what do you
