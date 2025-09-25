@@ -55,6 +55,11 @@ new left handed scissors is riht handed scissors
 we asked food pros to name the best can of soup and they killed themselves
 we asked cheese fans to name the best cheese and it stated a civil war
 we asked editors to name the best grammatical tool and it started a civil war
+we asked gun experts to pick a favorite bullet and they killed each other
+
+what the second amendment means to me #news 
+constitution begging to be amended #news 
+
 
 if you're such a fan of the english language, name 5 future present gerunds
 
