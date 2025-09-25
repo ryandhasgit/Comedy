@@ -92,4 +92,6 @@ hearing what someone said
 to save time, everyone is being renamed alex
 to save time, management as renamed everyone "alex"
 steve
+everyone hereby is called steve
+
 (company ceo or something)
