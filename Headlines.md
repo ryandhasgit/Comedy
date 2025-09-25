@@ -53,6 +53,8 @@ i need a staycation from this staycation
 new left handed scissors is riht handed scissors
 
 we asked food pros to name the best can of soup and they killed themselves
+
+and they said campbells
 we asked cheese fans to name the best cheese and it stated a civil war
 we asked editors to name the best grammatical tool and it started a civil war
 we asked gun experts to pick a favorite bullet and they killed each other
@@ -67,7 +69,7 @@ if you're such a fan of the english language, name 5 future present gerunds
 things we can all disagree on
 things we can all agree on
 things we can't all not disagree on #candidate 
-and they said campbells
+ptentially disagree one
 
 campbells soup 
 
@@ -97,4 +99,7 @@ everybody is hereby called steve
 named steve
 (company ceo or something)
 
-
+ideas for other left-handed office supplies
+supplies
+introducing the left-handed pizza
+pizza cutter
