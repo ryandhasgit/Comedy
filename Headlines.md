@@ -80,6 +80,7 @@ signs you need soup
 four score and seven years ago: an alternate universe where lincoln is a shoe
 
 transcript of my inner monologue during a conversation where i stopped listening five minutes ago
+my inner-monologue five minutes into a conversation i stopped listening to
 
 my favorite sue (sp?) chef explained
 this restaurant drama features real meals
@@ -92,5 +93,8 @@ hearing what someone said
 to save time, everyone is being renamed alex
 to save time, management as renamed everyone "alex"
 steve
-everyone hereby is called steve
+everybody is hereby called steve
+named steve
 (company ceo or something)
+
+
