@@ -55,7 +55,12 @@ new left handed scissors is riht handed scissors
 we asked food pros to name the best can of soup and they killed themselves
 we asked cheese fans to name the best cheese and it stated a civil war
 we asked editors to name the best grammatical tool and it started a civil war
-and it started 
+
+if you're such a fan of the english language, name 5 future present gerunds
+
+things we can all disagree on
+things we can all agree on
+things we can all not disagree on
 and they said campbells
 
 campbells soup 
