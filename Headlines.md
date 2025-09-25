@@ -82,4 +82,7 @@ four score and seven years ago: an alternate universe where lincoln is a shoe
 transcript of my inner monologue during a conversation where i stopped listening five minutes ago
 
 my favorite sue (sp?) chef explained
-this restaurant 
+this restaurant drama features real meals
+leaked script for the upcoming pilot of X
+
+"Could you rinner-monologue 
