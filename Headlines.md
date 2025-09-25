@@ -53,6 +53,9 @@ i need a staycation from this staycation
 new left handed scissors is riht handed scissors
 
 we asked food pros to name the best can of soup and they killed themselves
+we asked cheese fans to name the best cheese and it stated a civil war
+we asked editors to name the best grammatical tool and it started a civil war
+and it started 
 and they said campbells
 
 campbells soup 
@@ -60,4 +63,5 @@ campbells soup
 you're not scrolling enough
 signs you haven't consumed enough content #candidate 
 
+signs you need soup
 
