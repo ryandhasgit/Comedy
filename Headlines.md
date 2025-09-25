@@ -87,4 +87,9 @@ leaked script for the upcoming pilot of X
 
 "Could you repeat that?" i say for the third time, my (inner) monologue 
 "Sure" and other ways to lie about hearing someone
+hearing what someone said
 
+to save time, everyone is being renamed alex
+to save time, management as renamed everyone "alex"
+steve
+(company ceo or something)
