@@ -85,4 +85,6 @@ my favorite sue (sp?) chef explained
 this restaurant drama features real meals
 leaked script for the upcoming pilot of X
 
-"Could you rinner-monologue 
+"Could you repeat that?" i say for the third time, my (inner) monologue 
+"Sure" and other ways to lie about hearing someone
+
