@@ -11,12 +11,14 @@
             "id": "e5591136f8411408",
             "type": "leaf",
             "state": {
-              "type": "image",
+              "type": "markdown",
               "state": {
-                "file": "Misc/IMG_4267.jpg"
+                "file": "Headlines.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-image",
-              "title": "IMG_4267"
+              "icon": "lucide-file",
+              "title": "Headlines"
             }
           }
         ]
@@ -170,8 +172,8 @@
   },
   "active": "e5591136f8411408",
   "lastOpenFiles": [
-    "Headlines.md",
     "Misc/IMG_4267.jpg",
+    "Headlines.md",
     "Beat Bin/NBA Sneaker Squeak beats.md",
     "Untitled 1.md",
     "Misc",
