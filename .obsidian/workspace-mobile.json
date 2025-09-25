@@ -25,14 +25,12 @@
             "id": "f217024e835e58a7",
             "type": "leaf",
             "state": {
-              "type": "markdown",
+              "type": "image",
               "state": {
-                "file": "Headlines/Headlines Summarized.md",
-                "mode": "source",
-                "source": false
+                "file": "Misc/IMG_4267.jpg"
               },
-              "icon": "lucide-file",
-              "title": "Headlines Summarized"
+              "icon": "lucide-image",
+              "title": "IMG_4267"
             }
           }
         ],
@@ -169,9 +167,13 @@
   },
   "active": "f217024e835e58a7",
   "lastOpenFiles": [
+    "IMG_3780.jpg",
+    "Random/big bad wolf.md",
+    "Misc",
+    "Misc/IMG_4267.jpg",
+    "Headlines/Headlines Summarized.md",
     "Drafts/NBA Sneaker Squeak.md",
     "Query Tests.md",
-    "IMG_3780.jpg",
     "Headlines/Alex Baia Challenge.md",
     "Beat Bin/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
     "2025-09-24.md",
@@ -188,7 +190,6 @@
     "Drafts/Star Trek & Star Wars.md",
     "Drafts",
     "Beat Bin",
-    "Headlines/Headlines Summarized.md",
     "Headlines",
     "Alex Baia Challenge.md",
     "Headline Challenge.md",

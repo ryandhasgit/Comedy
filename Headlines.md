@@ -49,3 +49,11 @@ concerning: mother-in-law approves #news
 using ai to reinvent the wheel
 
 i need a staycation from this staycation
+
+new left handed scissors is riht handed scissors
+
+we asked food pros to name the best can of soup and they killed themselves
+and they said campbells
+
+campbells soup 
+
