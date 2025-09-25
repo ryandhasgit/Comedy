@@ -59,6 +59,7 @@ we asked gun experts to pick a favorite bullet and they killed each other
 
 what the second amendment means to me #news 
 constitution begging to be amended #news 
+constitution: amend me, daddy
 
 
 if you're such a fan of the english language, name 5 future present gerunds
@@ -75,4 +76,7 @@ signs you haven't consumed enough content #candidate
 (leg isn't shaking from anxiety)
 
 signs you need soup
+
+four score and seven years ago: an alternate universe where lincoln is a shoe
+
 
