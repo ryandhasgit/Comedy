@@ -103,3 +103,5 @@ ideas for other left-handed office supplies
 supplies
 introducing the left-handed pizza
 pizza cutter
+
+turn signals are optional
