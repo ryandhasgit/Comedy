@@ -37,5 +37,21 @@
 
 ## 9/13
 
+1. Proposed Replacements for the NBA Sneaker Squeak Sound
+
+2. Ways To Say Goodbye After Running Into Friends You've Already Said Bye To
+
+3. Frequently Asked Questions About Answering These Riddles Three
+
+4. I Came Here To Eat Ass and Chew Bubble Gum and I’m So Sorry for Not Considering the Order of Operations
+
+5. Welcome to the World, Son, You’re Gonna Need To Save a Lot of Spare Shirt Buttons
+
+23* 2 23 3 23 4 24
+
+1 - 0
+2 - 5
+3 - 4
+4 - 2
 
 
