@@ -164,7 +164,9 @@ i'm atlas and i'm tried of pushing this world up a cliff #candidate
 unionizing boulder rolling up the hill
 transcript of the meeting to unionize rolling boulders up a hill
 the burger king kids are unionizing
-meeting notes from the burger king kid's 
+meeting notes from the burger king kid's vote to unionize
+
+
 
 
 
