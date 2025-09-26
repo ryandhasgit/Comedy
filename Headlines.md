@@ -140,5 +140,7 @@ i can't tell you hwo hard it is to find a photographer for the bris
 
 i'm the foreskin fairy 
 
+chatgpt therapist to require bitcoin #news 
+
 
 
