@@ -97,4 +97,17 @@
 
 ## 9/5
 
+1) Newfangled Tech Buzzwords for Aging Software Executives
 
+2) Bachelorette Party Cake Reviews by Marie Antoinette
+
+3) I Am a Vampire and Nobody Invites Me Into House Parties Anymore
+
+4) 3.1415 Real-Life Uses for the Quadratic Equation
+
+5) Police Report Regarding Robert De Niro Stuck in the Circus Mirror Maze
+
+
+2 2 2 2 
+
+2 - 4
