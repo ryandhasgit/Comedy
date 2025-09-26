@@ -137,10 +137,15 @@ if other words were spelled like licorice #candidate
 pneumonia
 
 i can't tell you hwo hard it is to find a photographer for the bris
-i'm a photographer and there's a good reason i don
+i'm a photographer and there's a good reason i won't do a bris
+and i refuse to do your bris
+and i reluctantly agree to do your bris (maybe he's an adult cnvert lol)
 i'm the foreskin fairy 
 
 chatgpt therapist to require bitcoin #news 
+
+transcript: zepporah at the inn
+zepporah at the inn, a one-woman monologue
 
 
 
