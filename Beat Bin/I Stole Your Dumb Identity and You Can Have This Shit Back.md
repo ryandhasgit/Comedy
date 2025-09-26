@@ -2,7 +2,15 @@ When I found out all your passwords were balls@ck I was stoked. Usually people c
 
 i have to say, it wasn't hard, posing as a beautiful woman to lure you into giving me the answer to your security questions. i mean, i didn't even have to send you the risque pics, you offered up your first attended concert and pets name in your first message. i should have known someone that reckless with such a headlong approach to life would have a negative credit score. 
 
-now i'm up to my head in debt collectors. i'm going deaf from the calls. 
+now i'm up to my head in debt collectors, i'm behind on a car loan for a Toyota Carola that was incinerated in 2007; and honestly, you can have this shit back.
+
+not to mention the facebook messages from people thinking i'm you.
+
+when i hacked your social media, i thought i'd find some juicy messages for sex extortion. instead, there was nothing but a single DM to mel brooks, with the same message sent over and over, every day for years: SPACEBALLS 3? 
+DM to bill gates
+DMT
+
+i'm going deaf from the calls. 
 
 i bet you're laughing it up in silence. 
 
@@ -15,7 +23,7 @@ i looked at yoru credit history. who maxes out a cracker barrel credit card with
 let's look over your bank statement, shall we? 
 
 $559 on wigs
-$2,000 on cat puppets
+$2,000 on puppets
 
 
 security question 
