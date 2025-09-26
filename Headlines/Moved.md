@@ -25,3 +25,11 @@ a plea to stop letting kids swim in the river styx
 river styx lifeguard training guidelines
 
 peeping tom going by thomas now  #news
+
+weezers island in the sun written about epstein island #news
+
+rockies fans refuse to give up on playoffs (in winter)
+rockies mathematically eliminated from playoffs for ten years  #sports 
+
+spider phobia actually kinda logical 
+fear of heights perfectly logical

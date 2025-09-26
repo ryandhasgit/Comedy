@@ -159,7 +159,7 @@ using your third leg
 
 We are re-introducing peanuts to our menu and fuck it
 
-suitcase zippers, and other futiltiiee
+suitcase zippers, and other futiltiies
 
 it’s finally time to eat your veggies
 10 tricks to get your kid to eat their veggietales
