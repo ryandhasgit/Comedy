@@ -114,3 +114,19 @@
 
 ## 9/3
 
+1. This Skeleton Costume Has Nothing To Do With My Failing Marriage
+
+2. Nine of Ten Dentists Agree: The Tenth Dentist Must Be Stopped
+
+3. If We Die I Want You To Know I Don’t Regret the Plunger Incident
+
+4. God Forgive Me, I Love Someone Identical to My Boyfriend but With Glasses: The Diary of Lois Lane
+
+5. This Summit Cola Iced Mango Lemon Blast Was Supposed To Be for Two
+
+24* 2 2 24 34
+
+1 - 0
+2- 4
+3- 1
+4
