@@ -4,39 +4,51 @@
     "type": "split",
     "children": [
       {
-        "id": "e5c920b4cf70bfec",
-        "type": "tabs",
+        "id": "5e6f0302a1a43cb2",
+        "type": "split",
         "children": [
           {
-            "id": "e5591136f8411408",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Headlines/Headlines_9D-25.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Headlines_9D-25"
-            }
+            "id": "ee70d61036dc0221",
+            "type": "tabs",
+            "children": [
+              {
+                "id": "6533d61f8e64da1d",
+                "type": "leaf",
+                "state": {
+                  "type": "markdown",
+                  "state": {
+                    "file": "Headlines/Moved.md",
+                    "mode": "source",
+                    "source": false
+                  },
+                  "icon": "lucide-file",
+                  "title": "Moved"
+                }
+              }
+            ]
           },
           {
-            "id": "6533d61f8e64da1d",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Headlines/Alex Baia Challenge.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Alex Baia Challenge"
-            }
+            "id": "e5c920b4cf70bfec",
+            "type": "tabs",
+            "children": [
+              {
+                "id": "e5591136f8411408",
+                "type": "leaf",
+                "state": {
+                  "type": "markdown",
+                  "state": {
+                    "file": "Headlines/Headlines_9D-25.md",
+                    "mode": "source",
+                    "source": false
+                  },
+                  "icon": "lucide-file",
+                  "title": "Headlines_9D-25"
+                }
+              }
+            ]
           }
         ],
-        "currentTab": 1
+        "direction": "horizontal"
       }
     ],
     "direction": "vertical"
@@ -187,6 +199,8 @@
   },
   "active": "6533d61f8e64da1d",
   "lastOpenFiles": [
+    "Headlines/Alex Baia Challenge.md",
+    "Headlines/Moved.md",
     "Headlines/Headlines_9D-25.md",
     "Headlines/Headlines Summarized.md",
     "Beat Bin/I Stole Your Dumb Identity and You Can Have This Shit Back.md",
@@ -205,7 +219,6 @@
     "Beat Bin/Trek Beats.md",
     "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
     "Untitled.md",
-    "Headlines/Alex Baia Challenge.md",
     "2025-09-24.md",
     "Beat Bin/Diaper Hunk.md",
     "Notes.md",
@@ -220,7 +233,6 @@
     "Beat Bin",
     "Trek Beats.md",
     "Star Trek & Star Wars.md",
-    "Headline Challenge.md",
     "Untitled.canvas",
     "Untitled"
   ]
