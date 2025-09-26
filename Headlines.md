@@ -161,7 +161,10 @@ when i fell
 i'm atlas and sometimes it feels like this  planet is pushing me up a hill
 i'm atlas and i'm tried of pushing this world up a cliff #candidate 
 
-unionizing 
+unionizing boulder rolling up the hill
+transcript of the meeting to unionize rolling boulders up a hill
+the burger king kids are unionizing
+meeting notes from the burger king kid's 
 
 
 
