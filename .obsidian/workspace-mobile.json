@@ -25,12 +25,14 @@
             "id": "f217024e835e58a7",
             "type": "leaf",
             "state": {
-              "type": "image",
+              "type": "markdown",
               "state": {
-                "file": "Misc/IMG_4267.jpg"
+                "file": "Beat Bin/I Stole Your Dumb Identity and You Can Have This Shit Back.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-image",
-              "title": "IMG_4267"
+              "icon": "lucide-file",
+              "title": "I Stole Your Dumb Identity and You Can Have This Shit Back"
             }
           }
         ],
@@ -167,10 +169,11 @@
   },
   "active": "f217024e835e58a7",
   "lastOpenFiles": [
+    "Misc/IMG_4267.jpg",
+    "Beat Bin/I Stole Your Dumb Identity and You Can Have This Shit Back.md",
     "IMG_3780.jpg",
     "Random/big bad wolf.md",
     "Misc",
-    "Misc/IMG_4267.jpg",
     "Headlines/Headlines Summarized.md",
     "Drafts/NBA Sneaker Squeak.md",
     "Query Tests.md",

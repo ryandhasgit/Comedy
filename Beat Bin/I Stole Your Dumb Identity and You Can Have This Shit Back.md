@@ -14,6 +14,7 @@ pepole keep checking in on me
 i keep getting wellness checks. 
 
 here i thought at the least i would start getting yoru welfare checks in the mail, but all that has come is a bunch of junk mail made out to somebody else. how fucked up does your life have to be for you to get someone elses' junk mail?
+all i got were wellness checks by the police and mafia 
 
 i've gotten seven jury summons in as many months. i've been on five juries for hit and runs, and dismissed from two because of a history of inflammatory statements about women.
 
