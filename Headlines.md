@@ -111,3 +111,7 @@ did you want my license and registration to my cobra
 what do you mean this cobra doesn't have a birth certificate
 what do you mean this kitten doesn't have a social security number
 what do you
+
+--
+
+i could tell you but id have to kill you 
