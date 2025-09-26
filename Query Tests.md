@@ -5,7 +5,7 @@ TABLE file.etags = "best"
 
 
 ```query
-tag: #best 
+tag: #goahead  
 path: "Headlines"
 ```
 
