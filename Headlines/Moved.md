@@ -72,3 +72,10 @@ i am the electrons inside you and i can’t believe how much cake you just ate
 has anyone seen the hollywood sign?
 
 climate change killed the while whale and honestly i’m not sure how to feel about it 
+
+theo epstein arrested at wrigley island #sports
+
+i’m the unicycle and it’s a tragedy they aren’t allowing me into the x games
+
+marijuana influencer arrest for driving vocationally
+driving totally fine bro
