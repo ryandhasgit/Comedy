@@ -60,7 +60,7 @@
             "state": {
               "type": "file-explorer",
               "state": {
-                "sortOrder": "alphabetical",
+                "sortOrder": "alphabeticalReverse",
                 "autoReveal": false
               },
               "icon": "lucide-folder-closed",
@@ -192,6 +192,8 @@
   },
   "active": "eeca035a49b6f0a7",
   "lastOpenFiles": [
+    "Archive/Headline Archive/Untitled",
+    "Archive/Headline Archive",
     "Archive",
     "Headlines/Highlights.md",
     "Headlines/Moved.md",
