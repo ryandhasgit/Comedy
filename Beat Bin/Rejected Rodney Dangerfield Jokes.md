@@ -94,6 +94,10 @@ i ain’t got no next of kin, my emergency contact is my dog, even he wont’ an
 
 i don't get no respect, and i don't remember the last time i did. even as a kid they taunted me. they said hey rodney, you're no athelte, but at least you're ugly! kids, they don't respect you. teachers, they don't respect you. one time, late at night, i boarded a taxi going down the pacific coast highway. i told the driver to run the meter 'til the wheels fall off, fully intending to drive that bucket of bolts into the pacific ocean. as we hurried along the coast, you enter a stretch of the highway that's nothing but trees interspersed with moonlight. it's enough light o see where you're goign but not eough to know who you are. the driver didn't know what was coming and before he could blink I had the gun pressed under his neck. i said, wanna pay me respect? do i deserve respect now, jackie? what's the matter? ain't you ever had a gun pressed into your scrawny neck, ya summabitch? 
 
+i get no respect. once, late at night, i boarded a taxi going home. i asked the driver, hey how's my passenger-ing? and he told me to go to hell. i must've lost consciousness because when i came to, all there was was me and him and a pool of blood, so much blood you couldn't tell whose it was. and that summabitch, all he kept sayign was "please, my family." your 
+
+. i told the drive to run the meter until the wheels fell off, fully intending to drive that bucket of bolts into the hudson. 
+
 he said your mother? $20
 
  i pried it outta her mouth 
