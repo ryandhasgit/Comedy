@@ -130,3 +130,9 @@ please tap on the glass, it scares the fish and honestly, fuck ‘em
 
 the good the bad and the plenty
 
+my fur baby can do anything
+a human baby who also has rabies can do
+
+hey did you hear about that celebrity who did that thing?
+
+i am a vampire and nobody invites me into house parties anymore
