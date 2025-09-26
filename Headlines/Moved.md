@@ -164,3 +164,5 @@ fine, crush my fallen leaves; next year i’ll be back to fill your nose with so
 i’m gonna fill your nose with so much airborne tree cum
 
 Who and What Just scored on a bunt because you idiots were bickering
+
+Without the Second Amendment I Could Never Stand Up to the Tyranny of Innocent Unarmed Children #topical
