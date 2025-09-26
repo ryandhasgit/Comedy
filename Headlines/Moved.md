@@ -53,3 +53,7 @@ dinosaur fossils kinda look like they’re 69in’ #news
 we tossed a few scientists into a worm hole and they didtn’t even end the universe #news
 
 this is a dream job and you have to wake up 
+
+A wildlife expert’s guide to what’s good for your gander 
+
+If I don't ask your Dog's age how will I know how to pet it right
