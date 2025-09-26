@@ -83,3 +83,11 @@ driving totally fine bro
 guy who won’t stop talking about work failing to communicate what his job #news
 
 death OR taxes?
+
+shopping for your frog prince
+
+mathematicians break down how old you are on your birthday 
+
+sick! new astrology sign just formed out of the hole ripped into the universe 
+
+playing the birthday song in reverse reveals satantic cult #news 
