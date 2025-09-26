@@ -66,3 +66,9 @@ scientist wins noble prize for figuring out his to fold a fitted sheet #news
 an ode to homonyms
 
 a shakespearan commercial within a commercial 
+
+i am the electrons inside you and i can’t believe how much cake you just ate
+
+has anyone seen the hollywood sign?
+
+climate change killed the while whale and honestly i’m not sure how to feel about it 
