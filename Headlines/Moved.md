@@ -127,3 +127,6 @@ your overpriced coffee and overpriced breakfast sandwich are adjusted for inflat
 our local yet humble newspaper is instituting a salary cap
 
 please tap on the glass, it scares the fish and honestly, fuck ‘em
+
+the good the bad and the plenty
+
