@@ -134,6 +134,7 @@ recycle licorice
 you're eating licorice wrong
 
 if other words were spelled like licorice #candidate 
+if names were spelled like pneumonia
 pneumonia
 
 i can't tell you hwo hard it is to find a photographer for the bris
@@ -147,6 +148,9 @@ chatgpt therapist to require bitcoin #news
 transcript: zipporah at the inn
 zipporah at the inn, a one-woman monologue
 a monologue
+
+dog's death more tragic than human's #news 
+
 
 
 
