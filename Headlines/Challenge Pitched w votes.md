@@ -35,7 +35,7 @@
 4 - 4
 5 - 2
 
-## 9/13
+## 9/12
 
 1. Proposed Replacements for the NBA Sneaker Squeak Sound
 
@@ -55,3 +55,16 @@
 4 - 2
 5 - 0
 
+## 9/10
+
+1. My Wife Poisoned Me and Fucked My Brother: Rejected Rodney Dangerfield Jokes
+
+2. You’re Coveting Way Too Much of Your Neighbors’ Shit so I’m Adding Two More Commandments
+
+3. Misquotes of Your Favorite Movies by Hans Olo
+
+4. HR Demands a Stronger Password To Open This Cave Than “Open Sesame”
+
+5. My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend
+
+15* 4 14 
