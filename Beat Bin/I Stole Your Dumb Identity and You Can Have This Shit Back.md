@@ -10,6 +10,11 @@ when i hacked your social media, i thought i'd find some juicy messages for sex 
 DM to bill gates
 DM to jody foster, woody harrelson, derek jeter, brett farve
 
+pepole keep checking in on me
+i keep getting wellness checks. 
+
+
+
 i'm going deaf from the calls. 
 
 i bet you're laughing it up in silence. 
