@@ -103,3 +103,9 @@ it’s possible aliens exist but you’re definitely losing healthcare #news
 “illegals are stealing our jobs!” conservative man cries to his chatgpt therapist #news
 
 the most secure passwords, ranked 
+
+i’ve come from the future to tell you to litter more 
+
+i’m tupac and it turs out i’m pretty fucking dead #news
+
+i wont rest until every sports commercial features kevin hart #sports
