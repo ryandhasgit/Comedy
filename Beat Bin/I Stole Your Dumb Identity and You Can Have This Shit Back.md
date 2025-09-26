@@ -10,7 +10,13 @@ was this your plan all along? when i got you to send me $25 in amazon gift cards
 
 seriously, is that phone line ever going to stop ringing?
 
-i looked at yoru credit history. who maxes out a cracker barrel credit card within five days of opening? how many fucking country fried stakes can a person eat in that time? i've done the math.
+i looked at yoru credit history. who maxes out a cracker barrel credit card within five days of opening? how many fucking country fried stakes can a person eat in that time? i've done the math and it boggles me.
+
+let's look over your bank statement, shall we? 
+
+$559 on wigs
+$2,000 on cat puppets
+
 
 security question 
 
