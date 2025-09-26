@@ -8,7 +8,7 @@ not to mention the facebook messages from people thinking i'm you.
 
 when i hacked your social media, i thought i'd find some juicy messages for sex extortion. instead, there was nothing but a single DM to mel brooks, with the same message sent over and over, every day for years: SPACEBALLS 3? 
 DM to bill gates
-DMT
+DM to jody foster, woody harrelson, derek jeter, brett farve
 
 i'm going deaf from the calls. 
 
