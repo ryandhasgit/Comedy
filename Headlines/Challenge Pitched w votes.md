@@ -67,4 +67,22 @@
 
 5. My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend
 
-15* 4 14 
+15* 4 14 45 25
+
+1 - 2
+2 - 1
+3 - 0
+4 - 3
+5 - 3
+
+## 9/8
+
+1. Sorry Kids, This Magic School Bus is No Longer Allowed on Field Trips Into Ralph’s Asshole
+
+2. I’m Your Browser Tab That’s Been Open for Two Years and Please Let Me Die
+
+3. David Attenborough Narrates Someone Staking Out the Only Charging-Accessible Coffee Shop Table
+
+4. My Five-Year Plan for Getting Out of This Well
+
+5. I Stole Your Dumb Identity and You Can Have This Shit Back
