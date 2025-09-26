@@ -4,7 +4,7 @@ I get no respect. Like that song. You know that song? R-E-S-P-E-C-T. You ever no
 
 My old man, he was a drag. I once said: Pops, let’s play catch! So he ran outta the house and got hit by a bus.
 
-Have you seen my wife? She's no looker. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. No respect.
+Have you seen my wife? She's no looker. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal.
 
 But ya know, I’m no prize either. I went to a bachelor auction once and they couldn’t give me away for pennies. I wound up having to pay a girl to date me! So ya know, just another Friday night. 
 
@@ -12,7 +12,7 @@ I tell ya, I’m not finding much respect these days. I asked my neighbor, "You 
 
 She’s something, my wife. The other day I said, "See ya later, honey!" She told me she'd like to see other people later. Then she fucked my neighbor. Anybody? Anybody?
 
-Since my wife left, I haven’t gotten much action. Even my dog won’t kiss me. I said, listen pal, half the time you're licking your balls; you telling me mine ain’t good enough for ya? 
+Since my wife left me for my neighbor, I haven’t gotten much action. Even my dog won’t kiss me. I said, listen pal, half the time you're licking your balls; you telling me mine ain’t good enough for ya? 
 
 My wife---listen to this---she hates my guts, probably because of all the prostitutes and that I tried to sell her into slavery. She hates me so much she poisoned me with a toxin found only in goldfish. I said, it’s bad enough you tried to kill me, but you gotta off my aquarium too? 
 
