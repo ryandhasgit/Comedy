@@ -33,3 +33,9 @@ rockies mathematically eliminated from playoffs for ten years  #sports
 
 spider phobia actually kinda logical 
 fear of heights perfectly logical
+
+200 ways to spell chhannnukknah 
+
+mom praying child doesn’t google non-kidz bop version of wap #news
+we’ve turned kidz bop dirty again
+kidz bop not woke enough
