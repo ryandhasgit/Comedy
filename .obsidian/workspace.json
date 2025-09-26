@@ -31,12 +31,14 @@
             "id": "6533d61f8e64da1d",
             "type": "leaf",
             "state": {
-              "type": "image",
+              "type": "markdown",
               "state": {
-                "file": "IMG_3780.jpg"
+                "file": "Potential Concepts.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-image",
-              "title": "IMG_3780"
+              "icon": "lucide-file",
+              "title": "Potential Concepts"
             }
           }
         ]
@@ -190,6 +192,8 @@
   },
   "active": "6533d61f8e64da1d",
   "lastOpenFiles": [
+    "Misc/IMG_4267.jpg",
+    "IMG_3780.jpg",
     "Notes.md",
     "2025-09-24.md",
     "zArchive/Headline Archive/Challenge/Alex Baia Challenge.md",
@@ -204,13 +208,11 @@
     "Potential Concepts.md",
     "Random/Gilgamesh.md",
     "Beat Bin/NBA Sneaker Squeak beats.md",
-    "Misc/IMG_4267.jpg",
     "Headlines/Headlines_9D-25.md",
     "Beat Bin/I Stole Your Dumb Identity and You Can Have This Shit Back.md",
     "Untitled 2.md",
     "Untitled 1.md",
     "Misc",
-    "IMG_3780.jpg",
     "Beat Bin/My Five Year Plan For Getting Out Of This Well.md",
     "Drafts/NBA Sneaker Squeak.md",
     "Headlines/Analogy ideas.md",
