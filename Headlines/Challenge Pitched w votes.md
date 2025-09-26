@@ -16,3 +16,20 @@
 4 - 3
 5 - 2
 
+## 9/15
+1. Disco-Golf Is Back!
+
+2. The Heyday of Hotcake-Selling Is Over
+
+3. Ten Irritating Habits of the Most Successful People You Know
+
+4. Wile E. Coyote Reviews the ACME Product Catalog
+
+5. As a Cyclist Arrested for DUI I’m Just Glad We’re Taking Bike Lanes Seriously
+
+133535343432344
+
+1 - 1
+
+
+
