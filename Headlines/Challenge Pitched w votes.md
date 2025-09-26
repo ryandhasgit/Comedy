@@ -131,3 +131,23 @@
 3- 1
 4 - 2
 5 - 0
+
+## 9/1
+
+1. I’m a Medieval Knight and I Generally Prefer the Tuxedo of Armor
+
+2. It’s Me Garfield and Actually, Fuck Tuesdays Too
+
+3. I’m a Time Traveler and There’s No Such Thing as a No Such Thing as a Time Paradox
+
+4. A Rose by Any Other Name Is Just Another Flower You Dipshit
+
+5. Business Time, Baby: I’ll Take This Cocaine Margarita for the Road
+
+35* 1 2 2 2
+
+1 - 1
+2- 3
+3- 1
+4 - 0 
+5- 1 
