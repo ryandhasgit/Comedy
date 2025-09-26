@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Headlines/Headlines Summarized.md",
+                "file": "Headlines/Challenge Pitched w votes.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Headlines Summarized"
+              "title": "Challenge Pitched w votes"
             }
           }
         ]
@@ -98,7 +98,8 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300
+    "width": 300,
+    "collapsed": true
   },
   "right": {
     "id": "406a6ecad6f9461e",
@@ -192,8 +193,10 @@
   },
   "active": "0888c77139f7b75b",
   "lastOpenFiles": [
-    "Headlines/Moved.md",
     "Headlines/Headlines Summarized.md",
+    "Headlines/Challenge Pitched w votes.md",
+    "Headlines/Pitched",
+    "Headlines/Moved.md",
     "Headlines/Alex Baia Challenge.md",
     "Potential Concepts.md",
     "Random/Gilgamesh.md",
@@ -223,7 +226,6 @@
     "Random",
     "Headlines",
     "Drafts",
-    "Dikkers/Funny in a Flash.md",
     "Dikkers",
     "Beat Bin",
     "Untitled.canvas",
