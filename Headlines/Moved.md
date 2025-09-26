@@ -155,3 +155,7 @@ open the amazon ring doorbell-operated blast doors, please, CHAT
 the burger king sentences you to death
 
 i’m a mathematician and i can’t stand when people don’t simplify their calendar dates
+
+please pay us $100 to deprive you of all sensation
+
+fashion is not cyclical says flat earther #news 
