@@ -159,3 +159,8 @@ i’m a mathematician and i can’t stand when people don’t simplify their cal
 please pay us $100 to deprive you of all sensation
 
 fashion is not cyclical says flat earther #news 
+
+fine, crush my fallen leaves; next year i’ll be back to fill your nose with so much flower cum =  
+i’m gonna fill your nose with so much airborne tree cum
+
+Who and What Just scored on a bunt because you idiots were bickering
