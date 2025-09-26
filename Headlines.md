@@ -128,4 +128,10 @@ planet based plants
 sustainabilty win: these keyboarsd are plant boased
 sustainability win: these edible panties are plant based
 are made from recycled toilet paper
-recycled fru
+recycled fruit by the foot #news 
+recycle licorice
+
+you're eating licorice wrong
+
+if other words were spelled like licorice #candidate 
+
