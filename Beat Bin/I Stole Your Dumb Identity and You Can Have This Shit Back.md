@@ -19,7 +19,15 @@ i've gotten seven jury summons in as many months. i've been on five juries for h
 
 what's wrong with you?
 
+every credit card under hte sun
+did you ever even stop to ask if it was a good idea to sign up for some many newsletters?
 
+i've tried to cancel your maxim/mad magaizne subscription five times but they just keep showing up. i don't know what to do with all these issues. where ist his money coming from? all of your accounts are negative. your credit score is negative.
+
+the bank repossessed your hat collection
+i've been dodging mafia hit squads for a week. who the fuck bets $2,000 on pony racing?
+on pony wrestling?
+turtle 
 
 i'm going deaf from the calls. 
 
