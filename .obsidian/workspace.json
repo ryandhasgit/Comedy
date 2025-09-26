@@ -31,14 +31,12 @@
             "id": "6533d61f8e64da1d",
             "type": "leaf",
             "state": {
-              "type": "markdown",
+              "type": "image",
               "state": {
-                "file": "Archive/Headline Archive/Challenge/Alex Baia Challenge.md",
-                "mode": "source",
-                "source": false
+                "file": "IMG_3780.jpg"
               },
-              "icon": "lucide-file",
-              "title": "Alex Baia Challenge"
+              "icon": "lucide-image",
+              "title": "IMG_3780"
             }
           }
         ]
@@ -60,7 +58,7 @@
             "state": {
               "type": "file-explorer",
               "state": {
-                "sortOrder": "alphabeticalReverse",
+                "sortOrder": "byCreatedTimeReverse",
                 "autoReveal": false
               },
               "icon": "lucide-folder-closed",
@@ -190,17 +188,19 @@
       "github-sync:Sync with Remote": false
     }
   },
-  "active": "eeca035a49b6f0a7",
+  "active": "6533d61f8e64da1d",
   "lastOpenFiles": [
-    "Archive/Headline Archive/Challenge/Challenge Pitched w votes.md",
-    "Archive/Headline Archive/Challenge/Headlines Summarized.md",
+    "Notes.md",
+    "2025-09-24.md",
+    "zArchive/Headline Archive/Challenge/Alex Baia Challenge.md",
+    "zArchive/Headline Archive/Challenge/Challenge Pitched w votes.md",
+    "zArchive/Headline Archive/Challenge/Headlines Summarized.md",
     "Headlines/Moved.md",
-    "Archive/Headline Archive/Challenge",
-    "Archive/Headline Archive",
-    "Archive",
+    "zArchive/Headline Archive/Challenge",
+    "zArchive/Headline Archive",
+    "zArchive",
     "Headlines/Highlights.md",
     "Headlines/Pitched",
-    "Archive/Headline Archive/Challenge/Alex Baia Challenge.md",
     "Potential Concepts.md",
     "Random/Gilgamesh.md",
     "Beat Bin/NBA Sneaker Squeak beats.md",
@@ -219,9 +219,7 @@
     "Drafts/Rodney Draft.md",
     "Beat Bin/Trek Beats.md",
     "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
-    "2025-09-24.md",
     "Beat Bin/Diaper Hunk.md",
-    "Notes.md",
     "Query Tests.md",
     "Beat Bin/Riddles Three.md",
     "Random",
