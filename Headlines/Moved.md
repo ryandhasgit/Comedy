@@ -109,3 +109,7 @@ i’ve come from the future to tell you to litter more
 i’m tupac and it turs out i’m pretty fucking dead #news
 
 i wont rest until every sports commercial features kevin hart #sports
+
+there are hot ethcnically non-monogmous milfs in your area 
+
+our software is still broken but it looks cooler now 
