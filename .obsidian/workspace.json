@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
+                "file": "Drafts/Rodney Draft.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Rejected Rodney Dangerfield Jokes"
+              "title": "Rodney Draft"
             }
           }
         ]
@@ -172,8 +172,8 @@
   },
   "active": "38c7bb8e833795ca",
   "lastOpenFiles": [
-    "Drafts/Rodney Draft.md",
     "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
+    "Drafts/Rodney Draft.md",
     "Beat Bin/I Stole Your Dumb Identity and You Can Have This Shit Back.md",
     "Headlines/Headlines Summarized.md",
     "Query Tests.md",
