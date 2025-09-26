@@ -166,7 +166,9 @@ transcript of the meeting to unionize rolling boulders up a hill
 the burger king kids are unionizing
 meeting notes from the burger king kid's vote to unionize
 
-
+biblical allusions made cool
+made modern
+a magicians 
 
 
 
