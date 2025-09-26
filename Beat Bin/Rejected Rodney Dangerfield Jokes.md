@@ -27,6 +27,7 @@ i can’t relax, i tell ya. even my dog won’t hang out with me.
 
 listen, i get my respect. i aske dmy neighbor for some money. he said, i wouldn’t lend you money if i had any. i said, listen pal, it’s not my fault i’m a comedian in a dead end job with a wife who fucks his neighbor, gimme some dough. and then he turned around and fucked my wife. anybody? anybody? #ok
 
+with a whore wife that won't even fetch a nickel in kenya. 
 
 i tell ya, things have been tense with my wife ever since she lef tme for my neighbor.
 
@@ -91,7 +92,7 @@ We got into a big fight and I waved a gun in her face. She still wouldn't give m
 
 i ain’t got no next of kin, my emergency contact is my dog, even he wont’ anwer to his name let alone my calls.
 
-I tell ya, it's been tough and the respect, well, it's pra
+i don't get no respect, and i don't remember the last time i did. even as a kid they taunted me. they said hey rodney, you're no athelte, but at least you're ugly! kids, they don't respect you. teachers, they don't respect you. one time, late at night, i boarded a taxi going down the pacific coast highway. i told the driver to run the meter 'til the 
 
 he said your mother? $20
 
