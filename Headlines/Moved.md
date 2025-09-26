@@ -144,3 +144,10 @@ that’s not a fuzzy yellow desert: a beginnings guide to watching tennis #sport
 your boyfriends cheating on your or is he just batman 
 
 don’t you even think about stealing this shopping cart with three broken wheels
+
+where we’re going we don’t need roads, bridges, or vital public services 
+
+PRESIDENTIAL ORDER TO COMBAT THE FLUORIDE IN TOOTHPASTE
+
+open the impenetrable Amazon Ring Doorbell Blast Doors, please, HAL
+open the amazon ring doorbell-operated blast doors, please, CHAT
