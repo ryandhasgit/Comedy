@@ -175,5 +175,11 @@ i'm dwayne the rock johnson and yes, i ahve a kidney stone
 i'm dwayne the kidney stone johnson
 i'm dwayne the rock johnson and 
 
+this nicotine patch is also a fitbit
+
+i don't need flouride in my water, i bring my own
+
+
+
 
 
