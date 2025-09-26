@@ -39,3 +39,11 @@ fear of heights perfectly logical
 mom praying child doesn’t google non-kidz bop version of wap #news
 we’ve turned kidz bop dirty again
 kidz bop not woke enough
+
+Commandeering Your Situationship
+
+i’m the captain of this ship and i’m going to leave first 
+and trust me, i need to leave first
+when i, the captain, say “there she blows” please don’t laugh
+
+i’m doctor boner and that’s exactly why i became an anatomy professor
