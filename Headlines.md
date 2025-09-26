@@ -137,7 +137,7 @@ if other words were spelled like licorice #candidate
 pneumonia
 
 i can't tell you hwo hard it is to find a photographer for the bris
-
+i'm a photographer and there's a good reason i don
 i'm the foreskin fairy 
 
 chatgpt therapist to require bitcoin #news 
