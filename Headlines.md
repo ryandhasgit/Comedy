@@ -168,7 +168,9 @@ meeting notes from the burger king kid's vote to unionize
 
 biblical allusions made cool
 made modern
-a magicians 
+a magicians guide to biblical illusions #candidate 
+for my next biblical illusion i'm going to make jesus disappear
+
 
 
 
