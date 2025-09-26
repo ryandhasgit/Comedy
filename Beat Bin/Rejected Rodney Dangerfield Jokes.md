@@ -91,7 +91,7 @@ We got into a big fight and I waved a gun in her face. She still wouldn't give m
 
 i ain’t got no next of kin, my emergency contact is my dog, even he wont’ anwer to his name let alone my calls.
 
-
+I tell ya, it's been tough and the respect, well, it's pra
 
 he said your mother? $20
 
