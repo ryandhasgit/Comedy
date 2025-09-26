@@ -123,3 +123,7 @@ the first rule of book club is no fights
 i wish i could go back and tell my younger self it gets dumber
 
 your overpriced coffee and overpriced breakfast sandwich are adjusted for inflation of your waistline 
+
+our local yet humble newspaper is instituting a salary cap
+
+please tap on the glass, it scares the fish and honestly, fuck ‘em
