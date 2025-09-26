@@ -57,3 +57,8 @@ this is a dream job and you have to wake up
 A wildlife expert’s guide to what’s good for your gander 
 
 If I don't ask your Dog's age how will I know how to pet it right
+
+someone has cirucmscized the oscar meyer weinermobile
+
+i invented the fitted sheet and i’m sorry #candidate
+scientist wins noble prize for figuring out his to fold a fitted sheet #news 
