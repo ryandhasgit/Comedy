@@ -151,3 +151,7 @@ PRESIDENTIAL ORDER TO COMBAT THE FLUORIDE IN TOOTHPASTE
 
 open the impenetrable Amazon Ring Doorbell Blast Doors, please, HAL
 open the amazon ring doorbell-operated blast doors, please, CHAT
+
+the burger king sentences you to death
+
+i’m a mathematician and i can’t stand when people don’t simplify their calendar dates
