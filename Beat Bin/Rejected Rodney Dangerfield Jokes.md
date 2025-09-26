@@ -105,7 +105,9 @@ one day i passed a bag of fertilizer in the store. i remembered some kid in scho
 
 i tell ya, i really don't get no respect. my son, you ever meet him? my wife insists he's my kid, but you gotta consummate a marriage to have a kid, and every time i get naked, my wife vomits. it's nto her fault, it' sthe same reaction i get looking in the mirror, the same putrid disdain in the looks of my friends and my rabbi and my father. so i know the kid ain't mine. i know it even without seeing eyes that ain't mine, seeing his brown uncircumcized penis, seven times the size of mine. 
 
+i tell ya, my wife got her license the other day. if you ain' before, i gotta 10 minute ride 
 
+my wife, she's a terrible driver. 
 
 he said your mother? $20
 
