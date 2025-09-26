@@ -113,3 +113,13 @@ i wont rest until every sports commercial features kevin hart #sports
 there are hot ethcnically non-monogmous milfs in your area 
 
 our software is still broken but it looks cooler now 
+
+i’m the toothfairty and please stop swallowing your denchers 
+
+i’m oscar the grouch and now because of SSRIs, i am neither grouchy or able to ejaculate 
+  
+the first rule of book club is no fights 
+
+i wish i could go back and tell my younger self it gets dumber
+
+your overpriced coffee and overpriced breakfast sandwich are adjusted for inflation of your waistline 
