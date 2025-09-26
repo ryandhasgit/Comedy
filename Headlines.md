@@ -171,6 +171,9 @@ made modern
 a magicians guide to biblical illusions #candidate 
 for my next biblical illusion i'm going to make jesus disappear
 
+i'm dwayne the rock johnson and yes, i ahve a kidney stone
+i'm dwayne the kidney stone johnson
+i'm dwayne the rock johnson and 
 
 
 
