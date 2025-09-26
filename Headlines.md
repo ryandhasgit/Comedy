@@ -144,8 +144,10 @@ i'm the foreskin fairy
 
 chatgpt therapist to require bitcoin #news 
 
-transcript: zepporah at the inn
-zepporah at the inn, a one-woman monologue
+transcript: zipporah at the inn
+zipporah at the inn, a one-woman monologue
+a monologue
+
 
 
 
