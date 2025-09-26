@@ -27,7 +27,8 @@ i've tried to cancel your maxim/mad magaizne subscription five times but they ju
 the bank repossessed your hat collection
 i've been dodging mafia hit squads for a week. who the fuck bets $2,000 on pony racing?
 on pony wrestling?
-turtle 
+turtle races?
+
 
 i'm going deaf from the calls. 
 
