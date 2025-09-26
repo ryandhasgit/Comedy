@@ -95,3 +95,9 @@ playing the birthday song in reverse reveals satantic cult #news
 i’m your favorite comedian and please listen to my fifteenth new podcast
 
 report: joke too real to be funny #news 
+
+quiz: what restaurant should we go to
+
+it’s possible aliens exist but you’re definitely losing healthcare #news
+
+“illegals are stealing our jobs!” conservative man cries to his chatgpt therapist #news
