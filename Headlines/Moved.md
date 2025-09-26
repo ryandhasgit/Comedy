@@ -19,6 +19,8 @@ report: good deed punished #news
 
 to fight or flight: a quiz 
 
+updated list of what you can’t yell in a crowded theatre  
+
 hey doc it’s me achilles and uhhhh which heel was it again
 
 a plea to stop letting kids swim in the river styx 
