@@ -103,6 +103,8 @@ one day i passed a bag of fertilizer in the store. i remembered some kid in scho
 
 . i told the drive to run the meter until the wheels fell off, fully intending to drive that bucket of bolts into the hudson. 
 
+i tell
+
 he said your mother? $20
 
  i pried it outta her mouth 
