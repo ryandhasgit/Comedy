@@ -62,3 +62,7 @@ someone has cirucmscized the oscar meyer weinermobile
 
 i invented the fitted sheet and i’m sorry #candidate
 scientist wins noble prize for figuring out his to fold a fitted sheet #news 
+
+an ode to homonyms
+
+a shakespearan commercial within a commercial 
