@@ -153,7 +153,11 @@ dog's death more tragic than human's #news
 
 i'm adonis and i've really let myself go #candidate 
 
-i'm atlantis and sorry for that 
+i'm atlantis and sorry for that tsunami
+when i sneezed
+on my lunch break
+when i fell 
+(myth of sissyphus )
 
 
 
