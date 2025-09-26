@@ -27,6 +27,7 @@ i can’t relax, i tell ya. even my dog won’t hang out with me.
 
 listen, i get my respect. i aske dmy neighbor for some money. he said, i wouldn’t lend you money if i had any. i said, listen pal, it’s not my fault i’m a comedian in a dead end job with a wife who fucks his neighbor, gimme some dough. and then he turned around and fucked my wife. anybody? anybody? #ok
 
+with a whore wife that won't even fetch a nickel in kenya. 
 
 i tell ya, things have been tense with my wife ever since she lef tme for my neighbor.
 
@@ -91,7 +92,24 @@ We got into a big fight and I waved a gun in her face. She still wouldn't give m
 
 i ain’t got no next of kin, my emergency contact is my dog, even he wont’ anwer to his name let alone my calls.
 
+i don't get no respect, and i don't remember the last time i did. even as a kid they taunted me. they said hey rodney, you're no athelte, but at least you're ugly! kids, they don't respect you. teachers, they don't respect you. one time, late at night, i boarded a taxi going down the pacific coast highway. i told the driver to run the meter 'til the wheels fall off, fully intending to drive that bucket of bolts into the pacific ocean. as we hurried along the coast, you enter a stretch of the highway that's nothing but trees interspersed with moonlight. it's enough light o see where you're goign but not eough to know who you are. the driver didn't know what was coming and before he could blink I had the gun pressed under his neck. i said, wanna pay me respect? do i deserve respect now, jackie? what's the matter? ain't you ever had a gun pressed into your scrawny neck, ya summabitch? 
 
+i get no respect. once, late at night, i boarded a taxi going home. i asked the driver, hey how's my passenger-ing? and he told me to go to hell. i must've lost consciousness because when i came to, all there was was me and him and a pool of blood, so much blood you couldn't tell whose it was. and that summabitch, all he kept sayign was "please, my family. my family." well, ain't much of a family man now, are we jackie? 
+
+i get no respect. 
+
+
+one day i passed a bag of fertilizer in the store. i remembered some kid in school tellin' us how you could make a bomb outta the stuff. maybe i lost conscoiusness, 'cause next thing i know 
+
+. i told the drive to run the meter until the wheels fell off, fully intending to drive that bucket of bolts into the hudson. 
+
+i tell ya, i really don't get no respect. my son, you ever meet him? my wife insists he's my kid, but you gotta consummate a marriage to have a kid, and every time i get naked, my wife vomits. it's nto her fault, it' sthe same reaction i get looking in the mirror, the same putrid disdain in the looks of my friends and my rabbi and my father. so i know the kid ain't mine. i know it even without seeing eyes that ain't mine, seeing his brown uncircumcized penis, seven times the size of mine. 
+
+i tell ya, my wife got her license the other day. if you ain't a religious main now, i got a 10 minute joyride that'll change your mind. i said, honey, you're driving like shit, what're ya, on your period? she said, rodney, you're worthless, you're never gonna amount to nothing, and if you don't shut your ugly trap i'm gonna kill ya. I said, doll, that's the first promise you've ever given me that i believe!
+
+i tell ya, she's such a bad driver, my wife. we were driving down the long island expressway. i told her, hey honey, can you keep your eyes on the road? just pretend it's any man but me. oh boy, she did not like that, cause the next thing i know we're in the dirt, airbag deployed, car on its side. except my airbag didn't fire cause someone stuck a bobby pin in it, the same kid my wife wears in her hair. i said, honey, ain't that something, you didn't lose it after all. i said, aint' that something, you backstabbing two-timing harlot. i ain't never buying you any beauty prodcuts again. what would've happened if i bought you a curling iron , would that be in me isntead?  
+
+my wife, she's a terrible driver. 
 
 he said your mother? $20
 
@@ -131,3 +149,5 @@ i’m the hospital
 the doctor fucks my wife
 
 ending is: i’ve actually been in the hospital this whole time, the audience are the nurses, 
+
+theory: it gets more deranged, interpseredd with rela jokes, but eventually just loses the jokes and becomes insane, then ends with a real one

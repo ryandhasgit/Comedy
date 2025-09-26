@@ -92,6 +92,7 @@ maybe this is revealed to be the narrator pretending to like these movies at a d
 end on an amalgamation of the opening sequences
 maybe written in the format of a movie review or blog
  what's the name of his blog?
+start by listing similarities that are real and then get into the absurd
 ^theory
 
 who is the narrator 
