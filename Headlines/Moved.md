@@ -16,3 +16,12 @@ i got knocked in the head and yet im not the one seeing a cartoon bird dazed and
 other emotions  we are suspending from the mood ring  (horniness)
 
 report: good deed punished #news
+
+to fight or flight: a quiz 
+
+hey doc it’s me achilles and uhhhh which heel was it again
+
+a plea to stop letting kids swim in the river styx 
+river styx lifeguard training guidelines
+
+peeping tom going by thomas now  #news

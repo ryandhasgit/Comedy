@@ -132,14 +132,14 @@ prompt: after visit summary is actually a bill
 
 joke??
 bad news: my drink spilled 
-good news: grandmas shitty sweater is dead 
+good news: grandmas shitty sweater is dead  #joke
 
 joke?
 i wish grandma were still around to give me
 shitty sweaters 
 she’s not dead, just in a home 
 i guess i could visit her 
-but then id have to accept her shitty sweaters  
+but then id have to accept her shitty sweaters   #joke
 
 weezers island in the sun written about epstein island %
 
