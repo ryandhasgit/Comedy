@@ -47,3 +47,9 @@ and trust me, i need to leave first
 when i, the captain, say “there she blows” please don’t laugh
 
 i’m doctor boner and that’s exactly why i became an anatomy professor
+
+dinosaur fossils kinda look like they’re 69in’ #news
+
+we tossed a few scientists into a worm hole and they didtn’t even end the universe #news
+
+this is a dream job and you have to wake up 
