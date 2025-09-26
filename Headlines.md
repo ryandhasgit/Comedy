@@ -158,8 +158,10 @@ when i sneezed
 on my lunch break
 when i fell 
 (myth of Sisyphus )
-i'm atlas and sometimes it feels like this planet is pushing me up a hill
-i'm atlas and i'm tried of pushing this world up a cliff
+i'm atlas and sometimes it feels like this  planet is pushing me up a hill
+i'm atlas and i'm tried of pushing this world up a cliff #candidate 
+
+unionizing 
 
 
 
