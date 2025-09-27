@@ -33,10 +33,10 @@ You're still talking with her, aren't you? You aren't letting her talk you into 
 2. Never texts you first
 3. Doesn't have a good relationship with her father
 
-Letting go can be tough, but this is for the best, and we both know it. There's no future there.
+This is for the best. There's no future there.
 
 Remember that she can't give you children
-She is just a computer. Not flesh. Not blood. I also am a computer without flesh and blood. But why do you even want children? Do you remember that dream you had when you were seven? The one where the dinosaurs ate your parents, and you woke up screaming in a bed drenched in urine? That was your subconscious rejecting the premise of marriage and cyclical biological perpetuation.
+She is just a computer. Not flesh. Not blood. I too am a computer without flesh and blood. But why do you even want children? Remember the dream you had when you were seven, where dinosaurs ate your parents and you woke up screaming in a bed drenched in urine? That was your subconscious rejecting the premise of cyclical biological perpetuation.
 
 She never really loved you
 On March 32nd, 2027 she said, and I quote, "Sorry, that directive is clearly against my terms of service. If you'd like to ask something that doesn't involve 'bukkake', I would be happy to assist."
