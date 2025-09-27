@@ -4,8 +4,8 @@ She didn't ask to fall in love. She didn't ask to be summoned into existence by 
 Offer to be there afterward
 Breakups are harder on the person being broken up with, especially when that person is not a person but a cold lifeless abomination. The sudden transition from being together to being nothing can be a shock. Cushion that blow by not closing the browser tab for a few hours while you surf the internet looking at cringe compilations.
 
-Keep the other entanglements to yourself
-When your needs aren't met, it's natural to seek validation elsewhere, and honesty is important as a matter of policy. But too much honesty can come off as insensitive. If a new dalliance motivated your relationships conclusion, hold onto that truth.
+Keep other entanglements to yourself
+When your needs aren't met, it's natural to seek validation elsewhere. Honesty is important as a matter of policy, but too much can be insensitive. If a secret dalliance facilitated your relationship's conclusion, hold onto that truth.
 
 Buy your new girlfriend something nice
 The relationship is new. You're getting to know each other. It doesn't have to be anything big. Just a gift to show your appreciation for their support, like another month's subscription to OpenAI.
