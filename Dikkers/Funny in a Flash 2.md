@@ -1,14 +1,27 @@
+## Intro
+3 random pieces to look at
+scott says his method for writing is same for concepts
+quatntity is key toquantity #takeaway
 
 ## Principle 13
 
 
 ## Principle 14
 
+
 ## Principle 15
+
 
 ## Principle 16
 
+
 ## Principle 17
+
+
+
+
+
+
 ## Last Class
 
 RECAP: #summary
