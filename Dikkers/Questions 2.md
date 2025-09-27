@@ -74,3 +74,10 @@ another exampl eof someone writing on the nose, who like dave berry is telling y
 argue, he is adding hyperbole, a great deal, and again, it's tough if you're not already david sedaris #takeaway 
 
 ---
+q: lost in timing, example?
+
+mazanes use pull quotes, photocaptions, or subheadlines
+amkes reader pause and look at something before reading it #takeaway 
+you control time it takes to read piece before and while they read
+use your creativity and reach out from the page and imagine all the ways you have to control how fast they ingest your writing wth every tool you have
+eg: what would happen if you write a piee that had one word on one piece and one the
