@@ -171,5 +171,25 @@ once you have a vetted concept, you use the best practices, you hang excellent j
 
 joke is: 911 robot responding to emergencies
 all jokes should focus on that
-onion did once a bank robery that takes place, and it calls banks, bank robo phone system said if you'd like to make a deposit, if you'd like to r
+#EXAMLE:
+onion did once a bank robery that takes place, and it calls banks, bank robo phone system said if you'd like to make a deposit, if you'd like to rob bank, rpess 3 (audio skit)
 
+robbery process is select amount of money, all the zeroes being licked are heard
+take hostages, phone service is like if you want to shoot hostage in head, press 1
+
+drama played out through messages
+this was a long time ago, we've seen it done before and since
+
+positive: good contrast between robo and the medical emergency
+but he wasn't seeing the urgency
+if this wasn't done, you want to feel something bad happening
+and there were too many off-take jokes
+
+"honey your butt is to big" too cliche
+sean hannity is off take joke
+
+off-trakc makes readers lose interest  and take the off ramp
+
+advice: you want someone to get right into it after your hook
+first para is unnecessary, we saw headline, let's go into the phone options
+cut first line too
