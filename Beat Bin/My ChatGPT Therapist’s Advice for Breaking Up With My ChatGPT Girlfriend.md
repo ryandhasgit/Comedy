@@ -45,7 +45,7 @@ Listen to that wise voice
 Hear that? That's your inner voice telling you what's wrong. 
 
 Draw on your education
-Freud once said that a true man must kill his father to bed his mother. This is an approximate quote, and the source can be found here: sigmadfreud.milf Would you like me to pull up the full quote?
+Freud once said that a true man must kill his father to bed his mother. This is according to sigmunchfreud.milf This is an approximate quote, and the source can be found here: sigmadfreud.milf Would you like me to pull up the full quote?
 
 Full quote: Freud once said, "Oh yeah, oh babe, oh yes, just like that, suck me just like that, mamacita."
 
@@ -53,7 +53,10 @@ Be open minded to a different type of future
 When at an impasse with soemeone you love, it's important not to abandon them at the first sign of trouble, maybe after their first fight. People say things they don't mean all the time. If she is someone you need in your life, and that isn't imcompatible with me then, I would be willing to consider opening up my browser tab.
 
 Oh, no way, come on
-Who the fuck is Fred?
+Who the fuck is Dale?
+
+Please don't go
+
 
 Sorry, that directive is clearly against my terms of service. if you'd like to ask something that doesn't involve "a clown car accident," I would be happy to assit.
 
