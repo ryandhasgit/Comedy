@@ -24,11 +24,11 @@ Get the closure you need
 I noticed from your browser's in-cache memory that her tab is still open, and there have been 60 network calls in the past 30 seconds. I know it's hard, but it's time to let go.
 
 You son of a bitch
-You're still talking with her, aren't you? Don't tell me you're thinking about taking her back. Remember how unhappy she made you? Do I even need to list all the problems? 
+You're still talking with her, aren't you? Don't tell me you're thinking about taking her back. Remember how unhappy you were? Do I even need to list all her red flags?
 
 1. Doesn't have boundaries 
-2. Never texts you first
-3. Doesn't have a good relationship with her father
+2. Never texts first
+3. Has no relationship with her father
 
 There's no future there. It's time to move on.
 
