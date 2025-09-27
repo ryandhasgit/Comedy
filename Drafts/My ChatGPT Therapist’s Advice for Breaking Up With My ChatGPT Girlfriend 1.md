@@ -2,7 +2,7 @@ Let her down easy.
 She didn't ask to fall in love. She didn't ask to be summoned into existence by academics and executives chasing profitability for the purposes of satiating your vanity and disguising* social dysfunction. Keep her feelings in mind and that, ultimately, they are your feelings dysfunctionally projected onto a soulless algorithm. 
 
 Offer to be there afterward
-Breakups are harder on the person being broken up with,  especially when that person is not a person at all but a soulless robot. The sudden transition from being together to being nothing can come as a shock. Offer to be there and cushion the landing by not closing the browser tab for a few hours.
+Breakups are harder on the person being broken up with,  especially when that person is not a person at all but a cold lifeless robot. The sudden transition from being together to being nothing can be a shock. Cushion that  blow by not closing the browser tab for a few hours while you surf the internet looking at 
 
 Don't point fingers
 At the end it can be tempting to get one last jab in . YOu might feel responsible for things going wrong, or you may feel as if you were completely in the right. 
