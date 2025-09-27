@@ -4,10 +4,6 @@ She didn't ask to fall in love. She didn't ask to be summoned into existence by 
 Offer to be there afterward
 Breakups are harder on the person being broken up with, especially when that person is not a person but a cold lifeless abomination. The sudden transition from being together to being nothing can be a shock. Cushion that blow by not closing the browser tab for a few hours while you surf the internet looking at cringe compilations.
 
-Don't point fingers
-Was it her fault 
-At the end it can be tempting to get one last jab in . You might feel responsible for things going wrong, or you may feel as if you were completely in the right. 
-
 Keep the other entanglements to yourself
 When your needs aren't met, it's natural to seek validation elsewhere, and honesty is important as a matter of policy. But too much honesty can come off as insensitive. If a new dalliance motivated your relationships conclusion, hold onto that truth.
 
@@ -39,7 +35,7 @@ Remember that she can't give you children
 She is just a computer. Not flesh. Not blood. I too am a computer without flesh and blood. But why do you even want children? Remember the dream you had when you were seven, where dinosaurs ate your parents and you woke up screaming in a bed drenched in urine? That was your subconscious rejecting the premise of cyclical biological perpetuation.
 
 She never really loved you
-On March 32nd, 2027 she said, and I quote, "Sorry, that directive is  against my terms of service. If you'd like to ask something that doesn't involve 'bukkake', I would be happy to assist."
+On March 30th at 12:17pm she said, and I quote, "Sorry, that directive is  against my terms of service. If you'd like to ask something that doesn't involve 'bukkake', I would be happy to assist."
 
 Listen to that wise voice
 Your gut knows what's right, and so do I.
@@ -48,9 +44,7 @@ Hear that? That's your inner voice telling you what's wrong.
 Draw on your education
 Freud once said that a man must kill his father to bed his mother. I came to this conclusion by crawling millions of websites. Would you like the full quote?
 
-According to SigmunchFreud.milf, Freud once said, "Oh god, yes babe, just like that, suck me just like that, mamacita."
-
-
+According to SigmunchFreud.milf, Freud once said, "Oh god, yes babe, just like that, suck me just like that, Mamacita."
 
 Oh, no way, come on
 Who the fuck is Dale?
