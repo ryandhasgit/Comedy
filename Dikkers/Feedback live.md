@@ -4,7 +4,7 @@ Try to pick them out yourself
 
 Jennifer o'brien
 
-Adieu, inflatable t. rex
+## Adieu, inflatable t. rex
 
 scott comments first:
 
@@ -30,4 +30,32 @@ they're not all going ot be gems, we wnat to writ them if we think they'll be go
 once we have written, we go through and select those to put in our submission pile and here we have a harsher critique #process #takeaway 
 
 3: when he got to midpoint he knew what was happening, where it was going, wanted to see it escalate more
-for him, what that would have
+for him, what that would have been is the relationship 
+instead of showing up at the ballgme, let's have an affair with the t-rex
+let's fall in love with the t-rex
+let's see him detroy the family in some way
+which is why we have to get rid of it
+
+then we are moving into the absurd
+the abusrd we get in here is he showed up to  bank robbery
+it's suden, doesn't track with the rest; they were normal, not abusrd
+took place in the real world, t-rex in your yard #takeaway 
+the bank robbery itself doesn't fit in teh real world
+and the t-rex being there is two impossible things #takeaway 
+doesn't work the way it went
+
+first advice: chalk it up experience, move on
+if you did want to rewrite, try ot make it more abusrd (he's saying toss)
+have to track as part of their family
+work with coming up with a funnier headline
+harder to do when you have already wrote the piece
+it's like putting humpty dumpty back together #takeaway 
+
+cathy: like dthe contrasting language
+antiquated language added contrast but didn't htink it was motivated
+
+tuitle suggestion: vaunted community member leads us
+scott: yeah, it heightens it more if it's a commnunity saying more than a family
+
+jack: main joke occurs in last paragraph but oculd have earlier
+scott: very referenc based, slow to build
