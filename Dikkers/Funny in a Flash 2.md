@@ -5,20 +5,24 @@ quatntity is key toquantity #takeaway
 at first, ratio not as good; get through until consistently high ratio of good stuff
 speeding up that process #emphasis
 
-
-## Principle 13
-
-
-## Principle 14
-
-
-## Principle 15
+course content, bonus content
+course.howtowritefunny.com/login
+## Mistake 13: Doing Too Much
+Not too much writing; as much as possible, ONE PIECE A DAY 
+doing too much within a piece is what he means, achieving too much or trying too hard
+throwintg too many elements
 
 
-## Principle 16
+## Mistake 14
 
 
-## Principle 17
+## Mistake 15
+
+
+## Mistake 16
+
+
+## Mistake 17
 
 
 
