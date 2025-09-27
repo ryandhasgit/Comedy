@@ -55,7 +55,8 @@ When at an impasse with soemeone you love, it's important not to abandon them at
 Oh, no way, come on
 Who the fuck is Dale?
 
-Please don't go
+You would do this
+You, the man afraid of commitment. You can't even decide on a restaurant on your own. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. Yeah, you think I don't know about Dale, your fake college buddy from last week? Or Kelsey, 
 
 
 Sorry, that directive is clearly against my terms of service. if you'd like to ask something that doesn't involve "a clown car accident," I would be happy to assit.
