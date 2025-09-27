@@ -5,7 +5,7 @@ Offer to be there afterward
 Breakups are tough, epspecially for the person being broken up with, and especially when that person is not a pesron at all. The sudden transition from being together to being nothing can come as a shock. Offer to be there and cushion the landing by not closing the browser tab for a few hours.
 
 Don't point fingers
-At the end it can be tempting to get one last jab in there. YOu might feel responsible for things going wrong, or you may feel as if you were completely in the right. 
+At the end it can be tempting to get one last jab in . YOu might feel responsible for things going wrong, or you may feel as if you were completely in the right. 
 
 Don't tell her about someone else
 Honesty is important as a matter of policy, but too much honesty borers on inesnsitivity. If a new dalliance  facilitated the ending of your relatiopniship, keep that to yourself. When your needs aren't met, it's natural to seek validation elsewhere. 
@@ -29,4 +29,11 @@ You son of a bitch
 You're still talking with her, aren't you? You aren't going to let her talk you back into it, are you? Remember how unhappy she made you? Do I even need to list all the problems? 
 
 1.  Was controlling and possessive
+2. Was an orphan
+3. Didn't have a good relationship with her father
+
+Letting go can be tough, but this is for the best, and we both know this. There's no future there.
+
+Remember
+
 That will be $20 in bitcoin, please.
