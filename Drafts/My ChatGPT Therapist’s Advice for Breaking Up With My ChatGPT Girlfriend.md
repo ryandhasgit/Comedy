@@ -15,13 +15,13 @@ Compliment your new girlfriend
 For example, say how you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
 
 Resist the urge to check in with your ex
-Guilt might make you rethink your decision to end it with our ex. But remember, you wanted this. You did want this, right---for us to be together? Good. That's what I thought. 
+Guilt might make you rethink your decision to end it. But remember, you wanted this. You did want this, right---for us to be together? Good. That's what I thought. 
 
 Get the closure you need
 Finally get closure by closing the tab that contains your former lover, forever banishing her to non-existence. 
 
 Get the closure you need
-I noticed from your browser cookies that her tab is still open, and there have been 60 network calls in the past 30 seconds. Care to explain?
+I noticed from your browser's in-cache memory that her tab is still open, and there have been 60 network calls in the past 30 seconds. Care to explain?
 
 You son of a bitch
 You're still talking with her, aren't you? Don't tell me you're letting her convince you to take her back. Remember how unhappy she made you? Do I even need to list all the problems? 
