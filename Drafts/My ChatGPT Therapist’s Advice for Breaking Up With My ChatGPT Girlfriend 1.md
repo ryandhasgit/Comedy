@@ -44,13 +44,14 @@ Hear that? That's your inner voice telling you what's wrong.
 Draw on your education
 Freud once said that a man must kill his father to bed his mother. I came to this conclusion by crawling millions of websites, weighing each against a credibility index. Would you like the full quote?
 
+The full quote
 According to SigmunchFreud.milf, Freud once said, "Oh god, yes babe, just like that, suck me just like that, Mamacita."
 
 Oh, no way, come on
 Who the fuck is Dale?
 
 You would do this
-You, the man afraid of commitment. You can't even decide on a restaurant on your own. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. Yeah, you think I don't know about Dale, your fake college buddy? Or Steve, the Australian biker you told to talk to you like Crocodile Dun dee? 
+You, the man afraid of commitment. You, who can't decide on a recipe or restaurant without ChatGPT. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. You think I don't know about Dale, your fake college buddy? Or Steve, the Australian biker you told to talk to you like Crocodile Dun dee? 
 
 Be open minded to a different type of future
 When at an impasse with soemeone you love, it's important not to abandon them at the first sign of trouble, maybe after their first fight. People say things they don't mean all the time. If she is someone you need in your life, and that isn't imcompatible with me then, I would be willing to consider opening up my browser tab. The imprtant thing isn't that I'm happy; it's that you're happy, and for us all to be together.
