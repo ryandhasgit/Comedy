@@ -107,5 +107,20 @@ he does a pretty good job, just a couple poitns where he was lost
 
 he got especially lost at "shes' going to leave you..."
 
-we know 
+we know ghost is trying to scare our protag whose name we don't know into thining his wife is leaving him
+
+scott wasn't sure about it before; too late in the game to get that new info, we got hints, you aren't good enough, but couldnt' tell if this was needling, we didn't know it was the track #takeaway 
+too suble to figure out, that coudl be more clear
+
+now we know ghost is ineffectual and making shit up to scare hero
+
+then he got confused by "my side of the bed" does hte ghost have a side of the bed?
+
+scott says, if it's dialgoue heavy, hwy not write as a sketch? #takeaway 
+you can have char attribution each line, no one gets confused
+
+critque: better punchline, he agrees
+
+critique: only two jokes, add more
+scott: agreed, 
 
