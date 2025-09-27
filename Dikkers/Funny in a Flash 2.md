@@ -111,6 +111,26 @@ not a lot, you don't control when or how fast they see it (etc)
 
 looking at exmaples of how timing looks in prose humor 
 
+pic: lot of word that goes into timing of the onion newspaper front page
+we know params of how long it takes to read headline
+backup from headline
+first thing they see is context of newspaper
+that's going ot take a beat, a second, for them to see this delivered free on streett and think, oh tis'a  newspaper 
+that's a seocnd we're using to control their contedxt #takeaway
+
+step2: what newspaper is it, oh it'st he onion (next third of a second); if they've heard or seen the onion, they know what to epect, brand is introduced; we've controlled tehir initial context, introduced our brand voice which they may know, so they are primed and ready, used our first secna nd third to our advantage
+
+step 3: using timing to get them to read our front page article
+we want them to spend their time ot read "cia uses it's been using black highlighters all these years"
+coudl take anywhere from a second to three seconds dependong on speed, and we undertqnd that parameter 
+use those 3 seconds to try and hook them with a headline that's funny enough to want to read the article #takeaway 
+we're also using a pic to illustrate headline; we know they'll take a moment to look at that picture
+these are all tricks we're using to manage the time invested by the reader to get them to read the story #quote 
+
+all the work put into controlling timing, how fast reader gets into piee
+once they're in, we're still conttrlling timing #takeaway w
+
+
 
 ## Mistake 17
 
