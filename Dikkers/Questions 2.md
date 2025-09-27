@@ -72,3 +72,5 @@ q: how do you explain david sedaris doens't use funny filte rbut writes honestly
 
 another exampl eof someone writing on the nose, who like dave berry is telling you about his life
 argue, he is adding hyperbole, a great deal, and again, it's tough if you're not already david sedaris #takeaway 
+
+---
