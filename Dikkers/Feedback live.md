@@ -161,4 +161,15 @@ but if there is unique ways of speaking, you can use that, but be quick of it
 
 seen this beofre, but maybe we want to read it anyway
 
+scot: wouldn't have written this, it's been seen before, especially if he vetted
+a good example of why we put effort into selecting the concept, the biggest laugh
+
+scott: good jokes and funny moments
+how we know we're good at comedy writing
+even if it's not the best concept, you have the insticts to put in good jokes
+once you have a vetted concept, you use the best practices, you hang excellent jokes on the joke beats #takeaway
+
+joke is: 911 robot responding to emergencies
+all jokes should focus on that
+onion did once a bank robery that takes place, and it calls banks, bank robo phone system said if you'd like to make a deposit, if you'd like to r
 
