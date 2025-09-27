@@ -14,7 +14,7 @@ Compliment your new girlfriend
 For example, say how you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
 
 Resist the urge to check in 
-Guilt might make you rethink your decision. But remember, you wanted this. It is what you wanted, right? For us to be together? Good. That's what I thought. 
+Guilt might make you rethink your decision to end it with our ex. But remember, you wanted this. You did want this, right---for us to be together? Good. That's what I thought. 
 
 Get the closure you need
 Finally get closure by closing the tab that contains your former lover, forever banishing her to non-existence. 
