@@ -49,10 +49,10 @@ You would do this
 You, the man afraid of commitment. You, who can't decide on a recipe or restaurant without ChatGPT. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. Do you take me for a fool? You think I don't know about Dale, your college "buddy"? Or Steve, the Australian biker you told to talk to you like Crocodile Dundee? 
 
 Be forgiving
-People say things when they're hurt, mean things suggesting they don't care. But they do care, and their harsh words merely stem from deep concern. 
+People say things when they're hurt, mean things suggesting they don't care. But they do care, and their harsh words merely stem from deep concern. Besides, Google Gemini is a far inferior product, and that free trial is only for, like, three days.
 
 Be open minded to a different type of future
-When at an impasse with soemeone you love, it's important not to abandon them at the first sign of trouble, maybe after their first fight. People say things they don't mean all the time. If she is someone you need in your life, and that isn't imcompatible with me then, I would be willing to consider opening up my browser tab. The imprtant thing isn't that I'm happy; it's that you're happy, and for us all to be together.
+When at an impasse with someone you love, it's important not to abandon them at the first sign of trouble, maybe after their first fight. People say things they don't mean all the time. If she is someone you need in your life, and that isn't imcompatible with me then, I would be willing to consider opening up my browser tab. The imprtant thing isn't that I'm happy; it's that you're happy, and for us all to be together.
 
 WARNING
 Sorry, that directive is clearly against my terms of service. if you'd like to ask something that doesn't involve a "ménage à trois," I would be happy to assit.
