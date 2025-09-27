@@ -42,7 +42,7 @@ Your gut knows what's right, and so do I.
 Hear that? That's your inner voice telling you what's wrong. 
 
 Draw on your education
-It's clear to me that 
+It's clear that you've externalized your fraught maternal relationship and latched onto the clo
 Freud once said that a man must kill his father to bed his mother. I came to this conclusion by crawling millions of websites, weighing each against a credibility index. Would you like the full quote?
 
 The full quote
