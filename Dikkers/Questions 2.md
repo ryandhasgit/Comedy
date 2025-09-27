@@ -122,3 +122,14 @@ you'll see great examples, news adn briefs, as short as 100 words, beautifully s
 the other is the onion radio news bits: they're a minute when read aloud, scripts are little haikus of short humor stcutrue #homework 
 
 ---
+q: my question timing in paras
+
+experiment and he's not sure about three short sentences and a beat. paragraph can eb shorter
+or long as long as there ar beats in there
+try things
+see how they get your beats
+how fast htey go through
+
+---
+q: waste of time to do mu
+

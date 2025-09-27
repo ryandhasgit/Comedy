@@ -193,3 +193,5 @@ off-trakc makes readers lose interest  and take the off ramp
 advice: you want someone to get right into it after your hook
 first para is unnecessary, we saw headline, let's go into the phone options
 cut first line too
+
+
