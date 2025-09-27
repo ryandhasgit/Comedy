@@ -110,4 +110,77 @@ did you want my license and registration to my cobra
 
 what do you mean this cobra doesn't have a birth certificate
 what do you mean this kitten doesn't have a social security number
+
 what do you
+
+--
+
+i could tell you but id have to kill you 
+
+a spy movie for the spies and guys
+
+guys and balls
+a modern bris
+lobster bris
+choosing the right hedge clippers for your baby's bris
+
+planet based plants
+sustainabilty win: these keyboarsd are plant boased
+sustainability win: these edible panties are plant based
+are made from recycled toilet paper
+recycled fruit by the foot #news 
+recycle licorice
+
+you're eating licorice wrong
+
+if other words were spelled like licorice #candidate 
+if names were spelled like pneumonia
+pneumonia
+
+i can't tell you hwo hard it is to find a photographer for the bris
+i'm a photographer and there's a good reason i won't do a bris
+and i refuse to do your bris
+and i reluctantly agree to do your bris (maybe he's an adult cnvert lol)
+i'm the foreskin fairy 
+
+chatgpt therapist to require bitcoin #news 
+
+transcript: zipporah at the inn
+zipporah at the inn, a one-woman monologue
+a monologue
+
+dog's death more tragic than human's #news 
+
+i'm adonis and i've really let myself go #candidate 
+
+i'm atlas and sorry for that tsunami
+when i sneezed
+on my lunch break
+when i fell 
+(myth of Sisyphus )
+i'm atlas and sometimes it feels like this  planet is pushing me up a hill
+i'm atlas and i'm tried of pushing this world up a cliff #candidate 
+
+unionizing boulder rolling up the hill
+transcript of the meeting to unionize rolling boulders up a hill
+the burger king kids are unionizing
+meeting notes from the burger king kid's vote to unionize
+
+biblical allusions made cool
+made modern
+a magicians guide to biblical illusions #candidate 
+for my next biblical illusion i'm going to make jesus disappear
+
+i'm dwayne the rock johnson and yes, i ahve a kidney stone
+i'm dwayne the kidney stone johnson
+i'm dwayne the rock johnson and 
+
+this nicotine patch is also a fitbit
+
+i don't need flouride in my water, i bring my own
+
+beanie babies are coming back
+
+super bowl will use american numerals #news
+
+Cold Ones: Prequel to Hot Ones Not Going So Hot 

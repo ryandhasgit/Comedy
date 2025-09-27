@@ -132,14 +132,14 @@ prompt: after visit summary is actually a bill
 
 joke??
 bad news: my drink spilled 
-good news: grandmas shitty sweater is dead 
+good news: grandmas shitty sweater is dead  #joke
 
 joke?
 i wish grandma were still around to give me
 shitty sweaters 
 she’s not dead, just in a home 
 i guess i could visit her 
-but then id have to accept her shitty sweaters  
+but then id have to accept her shitty sweaters   #joke
 
 weezers island in the sun written about epstein island %
 
@@ -159,7 +159,7 @@ using your third leg
 
 We are re-introducing peanuts to our menu and fuck it
 
-suitcase zippers, and other futiltiiee
+suitcase zippers, and other futiltiies
 
 it’s finally time to eat your veggies
 10 tricks to get your kid to eat their veggietales
