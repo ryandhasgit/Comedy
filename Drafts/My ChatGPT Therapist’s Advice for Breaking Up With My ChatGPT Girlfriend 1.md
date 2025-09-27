@@ -46,7 +46,7 @@ Your gut knows what's right, and so do I.
 Hear that? That's your inner voice telling you what's wrong. 
 
 Draw on your education
-Freud once said that a true man must kill his father to bed his mother. I came to this conclusion based on a voluminous 
+Freud once said that a man must kill his father to bed his mother. I came to this conclusion based on a voluminous 
 
 This is according to sigmunchfreud.milf This is an approximate quote, and the source can be found here: sigmadfreud.milf Would you like me to pull up the full quote?
 
