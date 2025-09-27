@@ -17,8 +17,8 @@ The relationship is new. You're getting to know each other. It doesn't have to b
 Compliment your new girlfriend
 For example, say how you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
 
-Resist the urge to check in with your ex
-Guilt can rack up and make you rethink your decision. But remember, this is what you want. It is what you want, right? For us to be together? Good, that's what I thought. 
+Resist the urge to check in 
+Guilt might  you rethink your decision. But remember, this is what you want. It is what you want, right? For us to be together? Good, that's what I thought. 
 
 Get the closure you need
 Finally find release and closure by closing the tab that contains your former lover, forever again relinquishing her  to non-existence. 
