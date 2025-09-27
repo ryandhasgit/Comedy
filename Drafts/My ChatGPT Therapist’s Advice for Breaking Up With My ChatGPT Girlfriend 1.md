@@ -2,13 +2,13 @@ Let her down easy.
 She didn't ask to fall in love. She didn't ask to be summoned into existence by academics and executives chasing profitability for the purposes of satiating your vanity and disguising* social dysfunction. Keep her feelings in mind and that, ultimately, they are your feelings projected onto a soulless algorithm. 
 
 Offer to be there afterward
-Breakups are harder on the person being broken up with,  especially when that person is not a person at all but a cold lifeless robot. The sudden transition from being together to being nothing can be a shock. Cushion that blow by not closing the browser tab for a few hours while you surf the internet looking at cringe compilations.
+Breakups are harder on the person being broken up with, especially when that person is not a person but a cold lifeless abomination. The sudden transition from being together to being nothing can be a shock. Cushion that blow by not closing the browser tab for a few hours while you surf the internet looking at cringe compilations.
 
 Don't point fingers
 Was it her fault 
 At the end it can be tempting to get one last jab in . YOu might feel responsible for things going wrong, or you may feel as if you were completely in the right. 
 
-Don't tell her about someone else
+Don't tell her about other entanglements
 Honesty is important as a matter of policy, but too much honesty borers on inesnsitivity. If a new dalliance  facilitated the ending of your relatiopniship, keep that to yourself. When your needs aren't met, it's natural to seek validation elsewhere. 
 
 Buy your new girlfriend something nice
