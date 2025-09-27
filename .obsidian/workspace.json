@@ -4,21 +4,21 @@
     "type": "split",
     "children": [
       {
-        "id": "bfea0278b7b31af4",
+        "id": "9e0c5608a00ab455",
         "type": "tabs",
         "children": [
           {
-            "id": "fe382c3e5d8a97b4",
+            "id": "6533d61f8e64da1d",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Dikkers/Funny in a Flash 2.md",
+                "file": "Drafts/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Funny in a Flash 2"
+              "title": "My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend"
             }
           }
         ]
@@ -40,7 +40,7 @@
             "state": {
               "type": "file-explorer",
               "state": {
-                "sortOrder": "alphabetical",
+                "sortOrder": "byCreatedTimeReverse",
                 "autoReveal": false
               },
               "icon": "lucide-folder-closed",
@@ -74,8 +74,7 @@
               "title": "Bookmarks"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "horizontal",
@@ -166,88 +165,51 @@
       "canvas:Create new canvas": false,
       "daily-notes:Open today's daily note": false,
       "templates:Insert template": false,
-      "command-palette:Open command palette": false,
       "bases:Create new base": false,
+      "command-palette:Open command palette": false,
       "github-sync:Sync with Remote": false
     }
   },
-  "floating": {
-    "id": "2ee3c9a50ffec30e",
-    "type": "floating",
-    "children": [
-      {
-        "id": "5ed21b570a6c7329",
-        "type": "window",
-        "children": [
-          {
-            "id": "ba00edcb337ac07d",
-            "type": "tabs",
-            "children": [
-              {
-                "id": "38c7bb8e833795ca",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Dikkers/Questions 2.md",
-                    "mode": "source",
-                    "source": false
-                  },
-                  "icon": "lucide-file",
-                  "title": "Questions 2"
-                }
-              }
-            ]
-          }
-        ],
-        "direction": "vertical",
-        "x": 614,
-        "y": 43,
-        "width": 1576,
-        "height": 1000,
-        "maximize": true,
-        "zoom": 0
-      }
-    ]
-  },
-  "active": "38c7bb8e833795ca",
+  "active": "eeca035a49b6f0a7",
   "lastOpenFiles": [
-    "Dikkers/Funny in a Flash 2.md",
     "Dikkers/Questions 2.md",
+    "Dikkers/Funny in a Flash 2.md",
+    "Drafts/Chat GPT Draft 2.md",
     "Drafts/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
-    "Beat Bin/NBA Sneaker Squeak beats.md",
-    "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
-    "Dikkers/Funny in a Flash.md",
-    "zArchive/Headline Archive/Challenge/Challenge Pitched w votes.md",
+    "Potential Concepts.md",
+    "Misc/IMG_4267.jpg",
+    "IMG_3780.jpg",
+    "Notes.md",
+    "2025-09-24.md",
     "zArchive/Headline Archive/Challenge/Alex Baia Challenge.md",
-    "Untitled.md",
-    "Beat Bin/Riddles Three.md",
+    "zArchive/Headline Archive/Challenge/Challenge Pitched w votes.md",
     "zArchive/Headline Archive/Challenge/Headlines Summarized.md",
+    "Headlines/Moved.md",
     "zArchive/Headline Archive/Challenge",
     "zArchive/Headline Archive",
     "zArchive",
-    "Random/Gilgamesh.md",
-    "Potential Concepts.md",
-    "Headlines/Moved.md",
     "Headlines/Highlights.md",
+    "Headlines/Pitched",
+    "Random/Gilgamesh.md",
+    "Beat Bin/NBA Sneaker Squeak beats.md",
     "Headlines/Headlines_9D-25.md",
-    "Beat Bin/My Five Year Plan For Getting Out Of This Well.md",
-    "Beat Bin/Trek Beats.md",
     "Beat Bin/I Stole Your Dumb Identity and You Can Have This Shit Back.md",
-    "Beat Bin/Diaper Hunk.md",
-    "Drafts/Rodney Draft.md",
-    "Headlines/Headlines Summarized.md",
-    "Query Tests.md",
     "Untitled 2.md",
-    "Headlines.md",
     "Untitled 1.md",
-    "Misc/IMG_4267.jpg",
     "Misc",
-    "IMG_3780.jpg",
+    "Beat Bin/My Five Year Plan For Getting Out Of This Well.md",
+    "Drafts/NBA Sneaker Squeak.md",
+    "Headlines/Analogy ideas.md",
+    "Beat Bin/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
+    "Drafts/Star Trek & Star Wars.md",
+    "Drafts/Rodney Draft.md",
+    "Beat Bin/Trek Beats.md",
+    "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
     "Random",
+    "Headlines",
+    "Drafts",
     "Dikkers",
     "Beat Bin",
-    "Drafts",
-    "Headlines"
+    "Untitled.canvas"
   ]
 }
