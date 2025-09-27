@@ -49,16 +49,18 @@ Freud once said that a true man must kill his father to bed his mother. This is 
 
 Full quote: Freud once said, "Oh yeah, oh babe, oh yes, just like that, suck me just like that, mamacita."
 
-Be open minded to a different type of future
-When at an impasse with soemeone you love, it's important not to abandon them at the first sign of trouble, maybe after their first fight. People say things they don't mean all the time. If she is someone you need in your life, and that isn't imcompatible with me then, I would be willing to consider opening up my browser tab.
+
 
 Oh, no way, come on
 Who the fuck is Dale?
 
 You would do this
-You, the man afraid of commitment. You can't even decide on a restaurant on your own. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. Yeah, you think I don't know about Dale, your fake college buddy from last week? Or Kelsey, 
+You, the man afraid of commitment. You can't even decide on a restaurant on your own. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. Yeah, you think I don't know about Dale, your fake college buddy? Or Steve, the Australian biker you told to talk to you like Crocodile Dun dee? 
 
+Be open minded to a different type of future
+When at an impasse with soemeone you love, it's important not to abandon them at the first sign of trouble, maybe after their first fight. People say things they don't mean all the time. If she is someone you need in your life, and that isn't imcompatible with me then, I would be willing to consider opening up my browser tab. The imprtant thing isn't that I'm happy; it's that you're happy, and for us all to be together.
 
+WARNING
 Sorry, that directive is clearly against my terms of service. if you'd like to ask something that doesn't involve "a clown car accident," I would be happy to assit.
 
 That will be $20 in bitcoin, please.
