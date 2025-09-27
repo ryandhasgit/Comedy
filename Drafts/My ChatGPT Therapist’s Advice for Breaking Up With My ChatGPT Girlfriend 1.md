@@ -27,12 +27,11 @@ Get the closure you need
 I noticed from your browser cookies that her tab is still open, and there have been 60 network calls in the past 30 seconds. Care to explain?
 
 You son of a bitch
-You're still talking with her, aren't you? You aren't going to let her talk you back into it, are you? Remember how unhappy she made you? Do I even need to list all the problems? 
+You're still talking with her, aren't you? You aren't letting her talk you into taking her back, are you? Remember how unhappy she made you? Do I even need to list all the problems? 
 
-1. Was controlling and possessive
-2. Never texted you first
-3. Is an orphan
-4. Didn't have a good relationship with her father
+1. Never texted you first
+2. Is an orphan
+3. Didn't have a good relationship with her father
 
 Letting go can be tough, but this is for the best, and we both know it. There's no future there.
 
