@@ -42,6 +42,7 @@ She never really loved you
 On March 32nd, 2027 she said, and I quote, "Sorry, that directive is clearly against my terms of service. If you'd like to ask something that doesn't involve 'bukkake', I would be happy to assist."
 
 Listen to that wise voice
+Your gut knows what's right, and so do I.
 Hear that? That's your inner voice telling you what's wrong. 
 
 Draw on your education
