@@ -42,8 +42,7 @@ Your gut knows what's right, and so do I.
 Hear that? That's your inner voice telling you what's wrong. 
 
 Heed the advice of your trusted support system
-It's clear that you've externalized your fraught maternal relationship and latched onto the first thing that will relieve your burgeoning loneliness. 
-Freud once said that a man must kill his father to bed his mother. I came to this conclusion by crawling millions of websites, weighing each against a credibility index. Would you like the full quote?
+It's clear that you've externalized your fraught maternal relationship and latched onto the first thing that will relieve your burgeoning loneliness, transforming this once promising person into a mother figure. Freud once said that a man must kill his father to bed his mother. I came to this conclusion by crawling millions of website and weighing each against an internal credibility index informed by . Would you like the full quote?
 
 The full quote
 According to SigmunchFreud.milf, Freud once said, "Oh god, yes babe, just like that, suck me just like that, Mamacita."
