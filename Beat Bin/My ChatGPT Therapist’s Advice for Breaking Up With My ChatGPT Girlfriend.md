@@ -16,7 +16,7 @@ It doesn't have to be major. The relationship is new. You're getting to know eac
 Compliment your new girlfriend
 Something personal. For example, that you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
 
-Resist the urge to check in
+Resist the urge to check in with your ex
 Guilt can rack up and make you rethink your decision. But remember, this is what you want. It is, what you want, right? For us to be together? Good, that's what I thought. 
 
 Get the closure you need
@@ -41,8 +41,11 @@ Freud once said that a true man must kill his father to bed his mother. This is 
 
 Full quote: Freud once said, "Oh yeah, oh babe, oh yes, just like that, suck me just like that, mamacita."
 
-Be openminded to a different type of future
-When at an impasse with soemeone you love, it's important not to abandon them at the first sign of trouble, maybe afte
+Be open minded to a different type of future
+When at an impasse with soemeone you love, it's important not to abandon them at the first sign of trouble, maybe after their first fight. People say things they don't mean all the time. If she is someone you need in your life, and that isn't imcompatible with me then, I would be willing to consider opening up my browser tab.
+
+Oh, no way, come on
+Who the fuck is Fred?
 
 That will be $20 in bitcoin, please.
 
