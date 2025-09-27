@@ -16,7 +16,27 @@ is my chatgpt thing on the nose?
 q: is there list of timing tools
 a: don't know, i shoudl make one (makes note of it)
 
+q: should i be writing jokes before drafts and pitching jokes?
+
+q: should my sentence length alsways be short? 
+
 ---
 holly: way to write personal, autobiographical, still being shor thumor, and how to do correctly?
 
-a: yes. back to onion. many stories that are Area Man D
+a: yes. back to onion. many stories that are Area Man Does Small Stupid Thing
+ex: utter loser to spend rest of day in bed
+was a big front page story
+todd hansen wrote it, and pictture was him, in his bed, he wouldn't do this, and it was sad thing for him, he was depressed
+he could write about his life and struggles and could create puppet show where he makes it into this important news story and it reads as really funny
+everyone gets it, undersatnds the intelligence is a sad person who has hard time motivating himself to get out of bed
+
+to do correctly: your personal autobio subtext, write it down in form of opinion or value judgmeennt, and work it through 11 funny fitlers ONE AT A TIME, try to come up a way to say it with each funny filter, gives you list to give to your writers group; if it strkes chord, pic one that makes them laugh the hardest, then write it up #takeaway #major 
+
+---
+Q: some places don't allow for your own layout
+most places have their own
+the good ones have built in control of your timing, and you plug your stuff into it
+it's up to you to pick your paragraph length 
+you only control it insofar as they control
+
+but in your piece, yuou control paragraph length and sentence length
