@@ -192,10 +192,17 @@ these are two examples of character facades, and character is one of the funny f
 you can use other filters; the onion also uses parody as a facade
 these are curtains you place between you and the audience; you're the man behind the curtain operating the wizard, and these are tricks you use to make the reader focus on what you're writing, not on you #takeaway 
 
-huckleberry finn is great exmaple; naive kid, troublemaker, 
+huckleberry finn is great exmaple; naive kid, troublemaker, and we sense immediately the intelligence behind the voice of the kid, andt hat's mark twain
+and we like that, we want that game, ti makes reading ocmedy fun #takeaway 
 
+#FIX : Put on a puppet show
 
-
+## Review
+13. One Impossible thing at a time
+14. Heighten the contrast
+15. Keep it short
+16. use every timing tool you have (types size, para lenght, margins)
+17. put on a puppet show
 
 
 ## Last Class

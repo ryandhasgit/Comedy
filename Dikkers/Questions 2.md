@@ -15,3 +15,8 @@ is my chatgpt thing on the nose?
 
 q: is there list of timing tools
 a: don't know, i shoudl make one (makes note of it)
+
+---
+holly: way to write personal, autobiographical, still being shor thumor, and how to do correctly?
+
+a: yes. back to onion. many stories that are Area Man D
