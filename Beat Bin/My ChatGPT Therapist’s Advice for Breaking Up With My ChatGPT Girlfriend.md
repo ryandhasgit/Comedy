@@ -37,9 +37,12 @@ Letting go can be tough, but this is for the best, and we both know this. There'
 Remember that she can't give you children
 She is just a computer. Not flesh. Not blood. I also am a computer without flesh and blood. But why do you even want children? Do you remember that dream you had when you were seven? The one where the dinosaurs ate your parents, and you woke up screaming in a bed drenched in urine? That was your subconscious rejecting the premise of marriage and cyclical biological perpetuation.
 
-Freud once said that a true man must kill his father to bed his mother. This is an approximate quote, and the source can be found here: sigmadfreud.xxx. Would you like me to pull up the full quote?
+Freud once said that a true man must kill his father to bed his mother. This is an approximate quote, and the source can be found here: sigmadfreud.milf Would you like me to pull up the full quote?
 
-Full quote: Freud once said, ""
+Full quote: Freud once said, "Oh yeah, oh babe, oh yes, just like that, suck me just like that, mamacita."
+
+Be openminded to a different type of future
+When at an impasse with soemeone you love, it's important not to abandon them at the first sign of trouble, maybe afte
 
 That will be $20 in bitcoin, please.
 
