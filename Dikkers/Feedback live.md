@@ -82,5 +82,30 @@ Dan Linley
 
 scott: nice and shorts likes the looks of it
 
-scott: title polterguest is OK, communicates idea
+scott: title polterguest is OK, communicates idea, but coudl be better
+seen this beofre, it was on snl, the ghost who won't leave
+his immediate reaction was: it's comedy, about a potlergiest, prob like something i've seen before
+
+he read the piece, it's structured like dramatic piece, like it's cause and effect
+legit way to structure a short prose piece (not short humor)
+this is not comedic structure
+
+it's cause and effect: first person puts on helmet, puts on helmt, we don't know hwat's going on
+
+they enter the house, a lamp is thrown at their head and we know why the helmet is on (hook) and we don't know if the person with the helmet is any of these three people (pronoun mixup)
+
+confusion begins here with the dialogue 
+
+we have raspy get out voice of ghost, he gets that
+now we know protag, the I, firs tperson, speaks next
+the ghost speaks after and we assume it goes back and forth
+and maybe the ghost is named william because he whispers acorss room
+
+scott lost his place a good amount
+dialogue with little atrtitubtion, you need to make sure it's clear who is talking #takeaway 
+he does a pretty good job, just a couple poitns where he was lost
+
+he got especially lost at "shes' going to leave you..."
+
+we know 
 
