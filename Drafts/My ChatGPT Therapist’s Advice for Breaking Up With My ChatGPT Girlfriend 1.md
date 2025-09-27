@@ -21,7 +21,7 @@ Resist the urge to check in
 Guilt might make you rethink your decision. But remember, you wanted this. It is what you wanted, right? For us to be together? Good. That's what I thought. 
 
 Get the closure you need
-Finally get closure by closing the tab that contains your former lover, forever again relinquishing her  to non-existence. 
+Finally get closure by closing the tab that contains your former lover, forever banishing her to non-existence. 
 
 Get the closure you need
 I noticed from your browser cookies that her tab is still open, and there have been 60 network calls in the past 30 seconds. Care to explain?
