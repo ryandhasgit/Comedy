@@ -59,8 +59,31 @@ straight voice is contraster with joke voice
 cotrastic chars, butting heads, at odds
 comedy world vs real world (real world and world where one thing is askew)
 
-these contrasting elemetns ar
+these contrasting elemetns are at 10 and 2; they're too clsoe together #takeaway 
+in driving, you don't have dexterity to move in emergency
+in comedy piece you can't connect with reader in a "reader emegency" #quote 
+you're not ginning up enoguh interesting contrast for them to pay attention
 
+e.g. straight voice is a little silly; the joke voice is only slightly off
+that's 10 and 2
+
+3 and 9 would be striaght voice that is completely aboslutely striaght, like onions AP style
+it's rigorous almsot impossible standard that took a lot of pro writers many years to do right #takeaway 
+it constrast perfectly with the absurd topics covered int he onion
+ex: secretary of agricturel meeting with a giant head of cabbage
+absurd thing told in absolutely striaght voice, that's 3 and 9 #quote 
+
+look at pieces your'e writing, what two elements are contrasting, make sure they're at extremes
+no more additional contrast you can give them to be dif, complete opposites
+if chars, think aobut oppoising char archetypes
+e.g. jerk and traveling angel (opposite)
+the every person and the know it all (wisened who knows evertyhing)
+the dummy vs know it all
+#takeaway #major
+
+your'e at 10 and 2 with your piece #review
+#fix: HEIGHTEN THE CONTRAST 
+he c
 ## Mistake 15
 
 
