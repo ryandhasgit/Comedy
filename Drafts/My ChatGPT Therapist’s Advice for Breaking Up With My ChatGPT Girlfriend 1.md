@@ -30,8 +30,7 @@ You son of a bitch
 You're still talking with her, aren't you? You aren't letting her talk you into taking her back, are you? Remember how unhappy she made you? Do I even need to list all the problems? 
 
 1. Never texted you first
-2. Is an orphan
-3. Didn't have a good relationship with her father
+2. Didn't have a good relationship with her father
 
 Letting go can be tough, but this is for the best, and we both know it. There's no future there.
 
