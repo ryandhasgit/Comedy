@@ -128,8 +128,29 @@ we're also using a pic to illustrate headline; we know they'll take a moment to 
 these are all tricks we're using to manage the time invested by the reader to get them to read the story #quote 
 
 all the work put into controlling timing, how fast reader gets into piee
-once they're in, we're still conttrlling timing #takeaway w
+once they're in, we're still conttrlling timing #takeaway 
+we size our paragraphs just so, so when they've hit the end, when they hit the joke beat, that paragraph break gives them breather, pause, to get to next paragraph #takeaway 
 
+example of one that doesn't use it:
+big block of text, no headline, no breaks
+doesn't take advantage of timing 
+
+even in the 1700s, when swift worte moest propsal, he conmtroleld timing best he could
+he made his headlines HUGE compared to rest of piece
+he is pausing for unimportant words to be smaller than big words
+he has sense of how long you're spending on each line and word
+making the biggest words the most important
+
+back to simon rich's: big space between headline, that's big
+hooked by funny concept
+
+he starts his bit, written in script format
+great way to control timing #takeaway 
+each line is funny, each ciarrage return is pause to laugh a get to next joke
+controlling timing, sizing each line, knowing how long you'll spend on it before going to next one
+
+#Fix: Use every timing tool you have
+we know how important timing is in comedy, don't leave it on the table #quote 
 
 
 ## Mistake 17
