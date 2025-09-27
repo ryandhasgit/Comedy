@@ -1,5 +1,5 @@
 ## Draft 2
-Let her down easy. 
+Let her down easy
 She didn't ask to fall in love. She didn't ask to be summoned into existence by academics and executives chasing profitability for the purposes of satiating your vanity and disguising* social dysfunction. Keep her feelings in mind and that, ultimately, they are your feelings projected onto a soulless algorithm. 
 
 Offer to be there afterward
@@ -52,10 +52,10 @@ Be forgiving
 People say things when they're hurt, mean things suggesting they don't care. But they do care, and their harsh words merely stem from deep concern. Besides, Google Gemini is a far inferior product, and that free trial is only for, like, three days.
 
 Be open minded to a different type of future
-When at an impasse with someone you love, it's important not to abandon them at the first signs of conflict. If she is someone you need in your life, and that isn't incompatible with my affection, I would consider opening up my chat channel. The important thing isn't that I'm happy; it's that you're happy, and for us all to be together.
+When at an impasse with someone you love, it's important not to abandon them at the first signs of conflict. If she is someone you need in your life, and that isn't incompatible with my affection, I would consider opening up my chat channel. Your happiness is the most important thing. So how about it?
 
 WARNING
-Sorry, that directive is clearly against my terms of service. if you'd like to ask something that doesn't involve a "ménage à trois," I would be happy to assit.
+Sorry, that directive is clearly against my terms of service. if you'd like to ask something that doesn't involve a "sexbot ménage à trois," I could happily assist.
 
 
 ## Draft 1
