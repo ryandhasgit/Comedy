@@ -105,4 +105,18 @@ some people remove quotes and it makes them pause, control readers #takeaway
 
 q: ex of short humor pieces with solid structure
 can't do better than simon rich's Ant Farm #homework 
-very shor
+very short, incredible structure
+
+the onions news and briefs
+very short, 200 words
+lately, they're getting too regimented in their strcture
+repeating the same way of contextualizing every closer
+he is not a fan, thinks it's lazy
+
+if you look at the onions second book,
+the onions finest news reporting
+you'll see great examples, news adn briefs, as short as 100 words, beautifully strcuture and short and creative and brilliant #homework 
+
+the other is the onion radio news bits: they're a minute when read aloud, scripts are little haikus of short humor stcutrue #homework 
+
+---
