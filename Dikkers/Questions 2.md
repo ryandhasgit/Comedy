@@ -18,7 +18,7 @@ a: don't know, i shoudl make one (makes note of it)
 
 q: should i be writing jokes before drafts and pitching jokes?
 
-q: should my sentence length alsways be short? 
+q: should my sentence length alsways be short? is there a formula for a paragraph in some sitautions, like short A, B, long C?
 
 ---
 holly: way to write personal, autobiographical, still being shor thumor, and how to do correctly?
@@ -40,3 +40,23 @@ it's up to you to pick your paragraph length
 you only control it insofar as they control
 
 but in your piece, yuou control paragraph length and sentence length
+
+---
+Q: did twain use child perspetive as a kind of shield to delve deeper into subtext?
+
+a: he wante dnaive child to show the totally racist society 
+
+---
+
+q: are there pubs that want pieces with more words?
+
+if youw atn it for other pubs, meryc of hteir rules, abide by their rules
+tweak to fit their rules
+when you write to publish in your book collection, stuff that you post on your blog, you have total control;
+you can write short, 200 words, whatever
+
+---
+q: does your daily piece need to be a first draft?
+i came up with 3 (he shoudl come up with 6 lol)
+
+there's high standard of one piece a day, very few hit that standard
