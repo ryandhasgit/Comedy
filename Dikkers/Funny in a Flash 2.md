@@ -153,8 +153,21 @@ controlling timing, sizing each line, knowing how long you'll spend on it before
 we know how important timing is in comedy, don't leave it on the table #quote 
 
 
-## Mistake 17
+## Mistake 17: writing 'on the nose'
+in script writing it's when chars tell you eactly what they're thinking instead of symbolism or metaphor
 
+in short prose writing, writing on the nose is very sad for you (sad guy pic)
+it means: a conversational style of writing in whcih the writer tells you their earnest opinion without any facade, tricks, just on the nose
+
+### satirical
+opposed to writing satirically: writing behind a facade, a curtain #takeaway 
+this is a mistake, there's no better word, there are plenty of writers who write in conversational style, telling you what they're thinking
+dave berry is great example; they do fine, they do great but IT'S NOT SATIRE #quote 
+it will be difficult to compete in short humor space writing in that style
+berrry built up huge following, once you have that, you do what you want, you have yuoru brand ,your platform
+if your'e starting out and trying to make waves, it's difficult to succeed doing something that's on the nose, conversational style #takeaway 
+it's fine in convos
+when people read short humor piece, they want to know there is intelligence b
 
 
 

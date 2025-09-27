@@ -10,3 +10,8 @@ how to heighten with less runway (too short?)
 
 how to rewrite without dsirupting natural flwo and timing of what you wrote the first time
 i.e. trying to rework a paragraph
+
+is my chatgpt thing on the nose?
+
+q: is there list of timing tools
+a: don't know, i shoudl make one (makes note of it)
