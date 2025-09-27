@@ -77,3 +77,10 @@ corey: it's based around a visual thing hta't described than seen; took time to 
 
 scott: funny madcap visual of t-rex, wans't epxlited or heightedn as much as it oculd have been
 
+## Polterguest
+Dan Linley
+
+scott: nice and shorts likes the looks of it
+
+scott: title polterguest is OK, communicates idea
+

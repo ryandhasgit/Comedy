@@ -20,6 +20,8 @@ q: should i be writing jokes before drafts and pitching jokes?
 
 q: should my sentence length alsways be short? is there a formula for a paragraph in some sitautions, like short A, B, long C?
 
+Q: can we get these submissions in plain text?
+
 ---
 holly: way to write personal, autobiographical, still being shor thumor, and how to do correctly?
 
