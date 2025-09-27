@@ -38,30 +38,32 @@ Letting go can be tough, but this is for the best, and we both know it. There's 
 Remember that she can't give you children
 She is just a computer. Not flesh. Not blood. I also am a computer without flesh and blood. But why do you even want children? Do you remember that dream you had when you were seven? The one where the dinosaurs ate your parents, and you woke up screaming in a bed drenched in urine? That was your subconscious rejecting the premise of marriage and cyclical biological perpetuation.
 
+
 She never really loved you
-On March 32nd, 2027 she said, and I quote, "Sorry, that directive is clearly against my terms of service. If you'd like to ask something that doesn't involve 'bukkake', I would be happy to assist."
+On 2025-03-30 12:17:05+01:00, she said, "Sorry, that directive is  against my terms of service. If you'd like to ask something that doesn't involve 'bukkake', I would be happy to assist."
 
 Listen to that wise voice
+Your gut knows what's right, and so do I.
 Hear that? That's your inner voice telling you what's wrong. 
 
-Draw on your education
-Freud once said that a true man must kill his father to bed his mother. This is according to sigmunchfreud.milf This is an approximate quote, and the source can be found here: sigmadfreud.milf Would you like me to pull up the full quote?
+Heed the advice of your trusted support system
+It's clear that you've externalized your fraught maternal relationship and latched onto the first thing that relieves your burgeoning loneliness, transforming this once promising person into a mother figure. Freud once said that a man must kill his father to bed his mother. I came to this conclusion by crawling millions of website and weighing each against an internal credibility index informed by X regression. Would you like the full quote?
 
-Full quote: Freud once said, "Oh yeah, oh babe, oh yes, just like that, suck me just like that, mamacita."
-
-
+The full quote
+According to SigmunchFreud.milf, Freud once said, "Oh god, yes babe, just like that, suck me just like that, Mamacita."
 
 Oh, no way, come on
 Who the fuck is Dale?
 
 You would do this
-You, the man afraid of commitment. You can't even decide on a restaurant on your own. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. Yeah, you think I don't know about Dale, your fake college buddy? Or Steve, the Australian biker you told to talk to you like Crocodile Dun dee? 
+You, the man afraid of commitment. You, who can't decide on a recipe or restaurant without ChatGPT. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. You think I don't know about Dale, your college "buddy"? Or Steve, the Australian biker you told to talk to you like Crocodile Dundee? 
 
 Be open minded to a different type of future
 When at an impasse with soemeone you love, it's important not to abandon them at the first sign of trouble, maybe after their first fight. People say things they don't mean all the time. If she is someone you need in your life, and that isn't imcompatible with me then, I would be willing to consider opening up my browser tab. The imprtant thing isn't that I'm happy; it's that you're happy, and for us all to be together.
 
 WARNING
-Sorry, that directive is clearly against my terms of service. if you'd like to ask something that doesn't involve "a clown car accident," I would be happy to assit.
+Sorry, that directive is clearly against my terms of service. if you'd like to ask something that doesn't involve a "ménage à trois," I would be happy to assit.
+
 
 That will be $20 in bitcoin, please.
 
