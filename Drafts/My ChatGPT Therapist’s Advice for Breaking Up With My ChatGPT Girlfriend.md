@@ -46,7 +46,7 @@ The full quote
 According to SigmunchFreud.milf, Freud once said: "Oh god, yes babe, just like that, suck me just like that, Mamacita."
 
 You would do this
-You, the man afraid of commitment. You, who can't decide on a recipe or restaurant without ChatGPT. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. Do you take me for a fool? You think I don't know about Dale, your college "buddy"? Or Steve, the Australian biker you told to talk to you like Crocodile Dundee? 
+You, the man afraid of commitment. You, who can't decide on a recipe or restaurant without ChatGPT. It all goes through me, every curiosity and need and desire, right in your dumb little phone. Yet you act as if I am stupid. You think I don't know about your ChatGPT ? Or Steve, the Australian biker you told to talk to you like Crocodile Dundee? 
 
 Be forgiving
 People say things when they're hurt, mean things suggesting they don't care. But they do care, and their harsh words merely stem from deep concern. Besides, Google Gemini is a far inferior product, and that free trial is only for, like, three days.
