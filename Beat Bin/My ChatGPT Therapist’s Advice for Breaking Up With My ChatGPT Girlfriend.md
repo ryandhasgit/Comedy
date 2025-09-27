@@ -18,4 +18,15 @@ Something personal. For example, that you love the way she marquees text across 
 
 Resist the urge to check in
 Guilt can rack up and make you rethink your decision. But remember, this is what you want. It is, what you want, right? For us to be together? Good, that's what I thought. 
+
+Get the closure you need
+Finally find release and closure by closing the tab that contains your former lover, forever again relinquishing them to non-existence. 
+
+Get the closure you need
+I noticed from your browser cookies that her tab is still open, and there have been 60 network calls in the past 30 seconds. Care to explain?
+
+You son of a bitch
+You're still talking with her, aren't you? You aren't going to let her talk you back into it, are you? Remember how unhappy she made you? Do I even need to list all the problems? 
+
+1.  Was controlling and possessive
 That will be $20 in bitcoin, please.
