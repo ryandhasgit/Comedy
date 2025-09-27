@@ -8,8 +8,8 @@ Don't point fingers
 Was it her fault 
 At the end it can be tempting to get one last jab in . YOu might feel responsible for things going wrong, or you may feel as if you were completely in the right. 
 
-Don't tell her about other entanglements
-Honesty is important as a matter of policy, but too much honesty borers on inesnsitivity. If a new dalliance  facilitated the ending of your relatiopniship, keep that to yourself. When your needs aren't met, it's natural to seek validation elsewhere. 
+Keep the other entanglements to yourself
+Honesty is important as a matter of policy, but too much borders on insensitivity. If a new dalliance motivated your relationships conclusion, . When your needs aren't met, it's natural to seek validation elsewhere. 
 
 Buy your new girlfriend something nice
 It doesn't have to be major. The relationship is new. You're getting to know each other. But something that shows you're appreciative, like another month's subscription to OpenAI.
