@@ -2,6 +2,9 @@
 3 random pieces to look at
 scott says his method for writing is same for concepts
 quatntity is key toquantity #takeaway
+at first, ratio not as good; get through until consistently high ratio of good stuff
+speeding up that process #emphasis
+
 
 ## Principle 13
 
