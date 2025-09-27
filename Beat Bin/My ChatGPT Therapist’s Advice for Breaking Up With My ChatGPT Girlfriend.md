@@ -17,10 +17,10 @@ Compliment your new girlfriend
 Something personal. For example, that you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
 
 Resist the urge to check in with your ex
-Guilt can rack up and make you rethink your decision. But remember, this is what you want. It is, what you want, right? For us to be together? Good, that's what I thought. 
+Guilt can rack up and make you rethink your decision. But remember, this is what you want. It is what you want, right? For us to be together? Good, that's what I thought. 
 
 Get the closure you need
-Finally find release and closure by closing the tab that contains your former lover, forever again relinquishing them to non-existence. 
+Finally find release and closure by closing the tab that contains your former lover, forever again relinquishing her  to non-existence. 
 
 Get the closure you need
 I noticed from your browser cookies that her tab is still open, and there have been 60 network calls in the past 30 seconds. Care to explain?
@@ -37,6 +37,9 @@ Letting go can be tough, but this is for the best, and we both know this. There'
 Remember that she can't give you children
 She is just a computer. Not flesh. Not blood. I also am a computer without flesh and blood. But why do you even want children? Do you remember that dream you had when you were seven? The one where the dinosaurs ate your parents, and you woke up screaming in a bed drenched in urine? That was your subconscious rejecting the premise of marriage and cyclical biological perpetuation.
 
+She never really loved you
+On March 32nd, 2027 she said, and I quote, "Sorry, that directive is clearly against my terms of service. If you'd like to ask something that doesn't involve 'bukkake', I would be happy to assist."
+
 Freud once said that a true man must kill his father to bed his mother. This is an approximate quote, and the source can be found here: sigmadfreud.milf Would you like me to pull up the full quote?
 
 Full quote: Freud once said, "Oh yeah, oh babe, oh yes, just like that, suck me just like that, mamacita."
@@ -46,6 +49,8 @@ When at an impasse with soemeone you love, it's important not to abandon them at
 
 Oh, no way, come on
 Who the fuck is Fred?
+
+Sorry, that directive is clearly against my terms of service. if you'd like to ask something that doesn't involve "a clown car "
 
 That will be $20 in bitcoin, please.
 
