@@ -21,7 +21,7 @@ Get the closure you need
 Finally get closure by closing the tab that contains your former lover, forever banishing her to non-existence. 
 
 Get the closure you need
-I noticed from your browser's in-cache memory that her tab is still open, and there have been 60 network calls in the past 30 seconds. I know it's hard, but it's time to let go.
+I noticed from your browser's in-cache memory that her tab remains open and there have been 60 network calls in the last 30 seconds. I know it's hard, but it's time to let go.
 
 You son of a bitch
 You're still talking with her, aren't you? Don't tell me you're thinking about taking her back. Remember how unhappy you were? Do I even need to list all her red flags?
@@ -36,7 +36,7 @@ Remember that she can't give you children
 She is just a computer. Not flesh. Not blood. I too am a computer without flesh and blood. But why do you even want children? Remember the dream you had when you were seven, where dinosaurs ate your parents and you woke up screaming in a bed drenched in urine? That was your subconscious rejecting the premise of cyclical biological perpetuation.
 
 
-She never really loved you
+She never loved you
 On 2025-03-30 12:17:05+01:00 she said, "Sorry, that directive is against my terms of service. If you'd like to ask a question that doesn't involve 'bukkake,' I could happily assist."
 
 Heed the advice of your trusted support system
