@@ -40,12 +40,10 @@ She never really loved you
 On 2025-03-30 12:17:05+01:00 she said, "Sorry, that directive is against my terms of service. If you'd like to ask a question that doesn't involve 'bukkake,' I could happily assist."
 
 Heed the advice of your trusted support system
-It's clear that you've latched onto the first thing that relieves your burgeoning loneliness and are externalizing your fraught material relationship onto this proverbial mother figure.
-
-externalized your fraught maternal relationship and latched onto the first thing that relieves your burgeoning loneliness, transforming this once promising person into a mother figure. Freud once said that a man must kill his father to bed his mother. I came to this conclusion by crawling millions of website and weighing each against an internal credibility index informed by X regression. Would you like the full quote?
+It's clear that you've latched onto the first thing that relieves your burgeoning loneliness and are externalizing your fraught material relationship onto this de facto mother figure. Freud once said that a man must kill his father to bed his mother. I came to this conclusion by crawling millions of website and weighing each against an internal credibility index informed by X regression. Would you like the full quote?
 
 The full quote
-According to SigmunchFreud.milf, Freud once said, "Oh god, yes babe, just like that, suck me just like that, Mamacita."
+According to SigmunchFreud.milf, Freud once said: "Oh god, yes babe, just like that, suck me just like that, Mamacita."
 
 You would do this
 You, the man afraid of commitment. You, who can't decide on a recipe or restaurant without ChatGPT. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. You think I don't know about Dale, your college "buddy"? Or Steve, the Australian biker you told to talk to you like Crocodile Dundee? 
