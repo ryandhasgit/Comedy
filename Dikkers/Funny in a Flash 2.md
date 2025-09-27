@@ -83,11 +83,33 @@ the dummy vs know it all
 
 your'e at 10 and 2 with your piece #review
 #fix: HEIGHTEN THE CONTRAST 
-he c
-## Mistake 15
+he can't say enough his major note in a piece is to heighten the contrast, make things feel more lik eopopsites
+## Mistake 15: Going Long
+short prose humor piece shouldn't be long
+back in the 1700s, the famous modest proposal was long
+insufferably long, nobody has patience for that 
+
+earlier he talked about movies, tv, cinema, different stucture in those that allows for people to gin up the attention span needed to sit through that #takeaway
+dramatic strcutrue primarily, hooks 
+relationship hooks, unanswered qustions hooks #takeaway 
+short prose piece doesn't have that, nobody pays attention for more than a quick hit
+
+makes it great for you, a piece of day, the shorter the better, it's easier to write a lot of
+
+#FIX: keep it short
+example of modern prose piece from Simon Rich
+(it's two pages, barely 200-300 words)
+enough to get ocncept out
+few beats, punchline at the end
 
 
-## Mistake 16
+## Mistake 16: Ignoring timing
+you think, because your'e writing, you have no control over crucial element of timing, that of time
+you're incorrect
+you do have control
+not a lot, you don't control when or how fast they see it (etc)
+
+looking at exmaples of how timing looks in prose humor 
 
 
 ## Mistake 17
