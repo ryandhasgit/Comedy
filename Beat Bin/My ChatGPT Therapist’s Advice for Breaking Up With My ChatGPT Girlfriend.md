@@ -13,5 +13,9 @@ Honesty is important as a matter of policy, but too much honesty borers on inesn
 Buy your new girlfriend something nice
 It doesn't have to be major. The relationship is new. You're getting to know each other. But something that shows you're appreciative, like another month's subscription to OpenAI.
 
+Compliment your new girlfriend
+Something personal. For example, that you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
 
+Resist the urge to check in
+Guilt can rack up and make you rethink your decision. But remember, this is what you want. It is, what you want, right? For us to be together? Good, that's what I thought. 
 That will be $20 in bitcoin, please.
