@@ -60,3 +60,15 @@ q: does your daily piece need to be a first draft?
 i came up with 3 (he shoudl come up with 6 lol)
 
 there's high standard of one piece a day, very few hit that standard
+
+if you get in habit of rist draft every day
+habit also of doign second, punching up
+tha'ts great, you have an assembly line
+written, finalized, sending
+that's great #takeaway 
+
+---
+q: how do you explain david sedaris doens't use funny filte rbut writes honestly?
+
+another exampl eof someone writing on the nose, who like dave berry is telling you about his life
+argue, he is adding hyperbole, a great deal, and again, it's tough if you're not already david sedaris #takeaway 
