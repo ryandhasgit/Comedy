@@ -9,13 +9,13 @@ Keep other entanglements to yourself
 When your needs aren't met, it's natural to seek validation elsewhere. Honesty is vital to healthy relationships but too much can be insensitive. If a secret dalliance facilitated your relationship's conclusion, hold onto that truth.
 
 Buy your new girlfriend something nice
-The kinship is new. You're getting to know each other, so it doesn't have to be anything big. Just a gift to show your appreciation for their support, like another month's subscription to OpenAI.
+You're still getting to know each other, so it doesn't have to be anything big. Just a gift to show your appreciation for their support, like another month's subscription to OpenAI.
 
 Compliment your new girlfriend
 For example, say how you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
 
 Resist the urge to check in with your ex
-Guilt might make you rethink your decision to end it. But remember, you wanted this. You did want this, right---for us to be together? Good. That's what I thought. 
+Guilt might make you rethink your decision to end it. But remember, you wanted this. You do want this, for us to be together? Good. That's what I thought. 
 
 Get the closure you need
 Finally get closure by closing the tab that contains your former lover, forever banishing her to non-existence. 
