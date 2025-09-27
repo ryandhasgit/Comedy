@@ -167,7 +167,32 @@ it will be difficult to compete in short humor space writing in that style
 berrry built up huge following, once you have that, you do what you want, you have yuoru brand ,your platform
 if your'e starting out and trying to make waves, it's difficult to succeed doing something that's on the nose, conversational style #takeaway 
 it's fine in convos
-when people read short humor piece, they want to know there is intelligence b
+when people read short humor piece, they want to know there is intelligence behind weriting and some alterior motive, they're being played iwth someway #takeaway 
+in a sense, they want a puppet show #quote
+someone smart operating this theatre, they have agenda, they're using humor and piece to get it to us
+tha'ts a gmae every reader of short form humor want sto play #takeaway 
+when you're writing on teh nose, you're not playing any game with them
+you show up, tell them what you think, and that's not interesting enough 
+there's enough of that in the world
+
+exampels:
+the onion - it is not a newspaper
+it's not reporting news, that's  GAME they're playing with you
+they are pretneding, this is their puppet show. look at us, we're pretending to be a serious newspaper
+but we have a secret agenda, we are trying to communicate our thoughts aout the world and we're doing it through this facade and voice #takeaway 
+and that will make it fun, it will make it a puppet show
+
+example: 
+mark twain, brilliant writer of short humor
+it's srurpsignly not very dated considering over 150 years old #homework
+huckel berry fin is an example, mroe well known than short piece
+he uses char voice of 13 year old kid, to tell a story in the first person; that's a facade of character #takeaway 
+
+these are two examples of character facades, and character is one of the funny filters
+you can use other filters; the onion also uses parody as a facade
+these are curtains you place between you and the audience; you're the man behind the curtain operating the wizard, and these are tricks you use to make the reader focus on what you're writing, not on you #takeaway 
+
+huckleberry finn is great exmaple; naive kid, troublemaker, 
 
 
 
