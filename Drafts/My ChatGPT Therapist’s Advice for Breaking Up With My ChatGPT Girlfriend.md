@@ -6,14 +6,13 @@ Offer to be there afterward
 Breakups are harder on the person being broken up with, especially when that person is not a person but a cold lifeless abomination. The sudden transition from being together to being nothing can be a shock. Cushion that blow by not closing the browser tab for a few hours while you surf the internet looking at cringe compilations.
 
 Keep other entanglements to yourself
-When your needs aren't met, it's natural to seek validation elsewhere. Honesty is important as a matter of policy, but too much can be insensitive. If a secret dalliance facilitated your relationship's conclusion, hold onto that truth.
+When your needs aren't met, it's natural to seek validation elsewhere. Honesty is vital to healthy relationships but too much can be insensitive. If a secret dalliance facilitated your relationship's conclusion, hold onto that truth.
 
 Buy your new girlfriend something nice
 The kinship is new. You're getting to know each other, so it doesn't have to be anything big. Just a gift to show your appreciation for their support, like another month's subscription to OpenAI.
 
 Compliment your new girlfriend
 For example, say how you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
-
 
 Resist the urge to check in with your ex
 Guilt might make you rethink your decision to end it with our ex. But remember, you wanted this. You did want this, right---for us to be together? Good. That's what I thought. 
