@@ -6,13 +6,12 @@ Breakups are harder on the person being broken up with, especially when that per
 
 Don't point fingers
 Was it her fault 
-At the end it can be tempting to get one last jab in . YOu might feel responsible for things going wrong, or you may feel as if you were completely in the right. 
+At the end it can be tempting to get one last jab in . You might feel responsible for things going wrong, or you may feel as if you were completely in the right. 
 
 Keep the other entanglements to yourself
-Honesty is important as a matter of policy, but too much borders on insensitivity. If a new dalliance motivated your relationships conclusion, . When your needs aren't met, it's natural to seek validation elsewhere. 
+When your needs aren't met, it's natural to seek validation elsewhere, and honesty is important as a matter of policy. But too much honesty can come off as insensitive. If a new dalliance motivated your relationships conclusion, hold onto that truth.
 
 Buy your new girlfriend something nice
-It doesn't have to be major. The relationship is new. You're getting to know each other. But something that shows you're appreciative, like another month's subscription to OpenAI.
 
 Compliment your new girlfriend
 Something personal. For example, that you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
