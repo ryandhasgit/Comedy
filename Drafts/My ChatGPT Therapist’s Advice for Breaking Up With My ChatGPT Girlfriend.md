@@ -21,10 +21,10 @@ Get the closure you need
 Finally get closure by closing the tab that contains your former lover, forever banishing her to non-existence. 
 
 Get the closure you need
-I noticed from your browser's in-cache memory that her tab is still open, and there have been 60 network calls in the past 30 seconds. Care to explain?
+I noticed from your browser's in-cache memory that her tab is still open, and there have been 60 network calls in the past 30 seconds. I know it's hard, but it's time to let go.
 
 You son of a bitch
-You're still talking with her, aren't you? Don't tell me you're letting her convince you to take her back. Remember how unhappy she made you? Do I even need to list all the problems? 
+You're still talking with her, aren't you? Don't tell me you're thinking about taking her back. Remember how unhappy she made you? Do I even need to list all the problems? 
 
 1. Doesn't have boundaries 
 2. Never texts you first
