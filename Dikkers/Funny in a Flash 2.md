@@ -35,9 +35,31 @@ he learned trick from ernest canoy (sceince fiction writer)
 writer ons taff of his fav radio drama series of the 50s, "X minues 1" 
 scotts fav show of all time
 
-he said in scifi is one impossible thing at a
-## Mistake 14
+he said in scifi is one impossible thing at at a time
+we have other words, new tech, teleportration or invisibili5yt, space flight
+best scifi picks one and that becomes the "wow" element of the show
+he explained how it's confusing
+they see star wars which has aliens, space travel, big walking dog and robots and shit, thousands of impossilbes
+but he says: the way it is presetned, all thigns are normal in this wordl...
+robots ol piece of junk, my buddy is a talkikng dog
+the only impossible element in star wars is THE FORCE #takeaway one thing people talk aobut that's magical
+it's a very clear principle and it applies to comedy
 
+you don't have scifi awe aspect
+you have elment of the real world, and the one thing that is off
+and that's how you keep things to one impossible thing, don't do too much in a short comedy piece
+## Mistake 14: 10 and 2
+when you learn how to drive, they say don't do hands at top, do 10 and 2 o clock; some say 3 and 9 are good
+he'll use 3 & 9 as example
+
+when you look at a lot of comedy pieces, there is some sort of contrast at work in the piece
+
+either:
+straight voice is contraster with joke voice
+cotrastic chars, butting heads, at odds
+comedy world vs real world (real world and world where one thing is askew)
+
+these contrasting elemetns ar
 
 ## Mistake 15
 
