@@ -45,9 +45,6 @@ It's clear that you've externalized your fraught maternal relationship and latch
 The full quote
 According to SigmunchFreud.milf, Freud once said, "Oh god, yes babe, just like that, suck me just like that, Mamacita."
 
-Oh, no way, come on
-Who the fuck is Dale?
-
 You would do this
 You, the man afraid of commitment. You, who can't decide on a recipe or restaurant without ChatGPT. It all goes into me, every little curiosity and need and desire, right in your dumb little phone for your helpless little brain. You think I don't know about Dale, your college "buddy"? Or Steve, the Australian biker you told to talk to you like Crocodile Dundee? 
 
