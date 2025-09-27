@@ -1,7 +1,7 @@
 {
   "remoteURL": "https://github.com/ryandhasgit/Comedy.git",
   "gitLocation": "",
-  "syncinterval": 3,
+  "syncinterval": 5,
   "isSyncOnLoad": false,
   "checkStatusOnLoad": true
 }
