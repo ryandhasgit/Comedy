@@ -137,3 +137,25 @@ best way to review pieces is open cold and start reading and be as harsh as ar e
 
 cathy asks if the reader is a former lover (nice)
 
+q: use misplaced focus, talk about it as an insurance case
+they're putting a ghost on their insurance
+that's a short piece idea
+better for prose, letter to insurance company to convince them to cover polterguest damage
+very clear humor concept, see how beats escalate
+blood on wall was $400 to clean
+existing IP, pepole get it, world of poltergiest 
+one impossible thing, it's really simple
+
+scott: simon rich did a piece called math problems
+it's a math teacher who creates these math problems for students but wroks personal pborlems into them
+so kids get inappropriately exopsed to drinking problems, marriage problems
+that's funny, insightfl way to do satire, hide the reveal of personal problems within some other structure #takeaway 
+coudl be problems of the writer
+if you watn them as probs of the protag or char, that's fine too
+
+q: can you use insults to indicate who is speaking?
+scott: blunter solution is to use a sketch format
+but if there is unique ways of speaking, you can use that, but be quick of it
+
+
+
