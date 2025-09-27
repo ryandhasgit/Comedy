@@ -34,6 +34,9 @@ You're still talking with her, aren't you? You aren't going to let her talk you 
 
 Letting go can be tough, but this is for the best, and we both know this. There's no future there.
 
-Remember
+Remember that she can't give you children
+She is just a computer. Not flesh. Not blood. I also am a computer without flesh and blood. But why do you even want children? Do you remember that dream you had when you were seven? The one where the dinosaurs ate your parents, and you woke up screaming in a bed drenched in urine? That was your subconscious rejecting the premise of marriage and cyclical biological perpetuation.
+
+Freud once said that a true man must kill his father to bed his mother. This is an approximate quote, and the source can be found here: www.fs
 
 That will be $20 in bitcoin, please.
