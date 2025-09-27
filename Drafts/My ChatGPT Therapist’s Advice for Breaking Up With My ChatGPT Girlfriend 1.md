@@ -12,9 +12,10 @@ Keep the other entanglements to yourself
 When your needs aren't met, it's natural to seek validation elsewhere, and honesty is important as a matter of policy. But too much honesty can come off as insensitive. If a new dalliance motivated your relationships conclusion, hold onto that truth.
 
 Buy your new girlfriend something nice
+The relationship is new. You're getting to know each other. It doesn't have to be anything big. Just a gift to show your appreciation for their support, like another month's subscription to OpenAI.
 
 Compliment your new girlfriend
-Something personal. For example, that you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
+For example, say how you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
 
 Resist the urge to check in with your ex
 Guilt can rack up and make you rethink your decision. But remember, this is what you want. It is what you want, right? For us to be together? Good, that's what I thought. 
