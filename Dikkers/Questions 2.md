@@ -80,4 +80,29 @@ mazanes use pull quotes, photocaptions, or subheadlines
 amkes reader pause and look at something before reading it #takeaway 
 you control time it takes to read piece before and while they read
 use your creativity and reach out from the page and imagine all the ways you have to control how fast they ingest your writing wth every tool you have
-eg: what would happen if you write a piee that had one word on one piece and one the
+eg: what would happen if you write a piee that had one word on one piece and a word on the next page and so on so forth
+dave eggers did this with first novel, his memoir
+eddy schlaner, writes "very good copy" 
+he does crazy and creative spacing within articles
+these are all ways to reach out from the dead page and force the reader to pause between words or sentences
+
+you've got headlines, pictures, picture captions, pull quotes, sizing of pargrapohs, space between paras, space between words, type size in story and in headline #examples
+as much control as you have in a piece
+
+---
+
+q: classify jack handy, stench of honolulu? is it farce or whatever
+a: can't comment, havne't read
+scott loves jack handy and his short writing
+
+---
+q: does punctuation work as a timing tool?
+aboslutely. not too small. if you got rid of all punctuation you control timing makes it stremwroll, maybe you want that #takeaway
+
+some people remove quotes and it makes them pause, control readers #takeaway
+
+---
+
+q: ex of short humor pieces with solid structure
+can't do better than simon rich's Ant Farm #homework 
+very shor
