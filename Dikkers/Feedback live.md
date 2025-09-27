@@ -5,6 +5,7 @@ Try to pick them out yourself
 Jennifer o'brien
 
 ## Adieu, inflatable t. rex
+[note: i need to find full copy?]
 
 scott comments first:
 
@@ -59,3 +60,20 @@ scott: yeah, it heightens it more if it's a commnunity saying more than a family
 
 jack: main joke occurs in last paragraph but oculd have earlier
 scott: very referenc based, slow to build
+
+suggestiON: eulogy for inflatable t-rex
+scott: yeah better
+
+suggestion: allison, small kid in costume, concern he was shot?
+scott: i got it was a blowup doll
+
+critique: requires farir work to get what it's about 
+
+scott: some off track jokes (twas gold idiots, and florida)
+jokes nt along the same track. all jokes should be on the track
+otherwise it seems like ulterior motive, differne tagenda and trakc of jokes
+
+corey: it's based around a visual thing hta't described than seen; took time to see it in minds eye, required mental math
+
+scott: funny madcap visual of t-rex, wans't epxlited or heightedn as much as it oculd have been
+
