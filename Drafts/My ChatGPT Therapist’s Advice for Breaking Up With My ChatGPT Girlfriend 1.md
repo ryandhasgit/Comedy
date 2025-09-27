@@ -20,16 +20,16 @@ Get the closure you need
 Finally get closure by closing the tab that contains your former lover, forever banishing her to non-existence. 
 
 Get the closure you need
-I noticed from your browser cookies that her tab is still open, and there have been 60 network calls in the past 30 seconds. Care to explain?
+I noticed from your browser cookies that her tab is still open and there have been 60 network calls in the past 30 seconds. Care to explain?
 
 You son of a bitch
-You're still talking with her, aren't you? You aren't letting her talk you into taking her back, are you? Remember how unhappy she made you? Do I even need to list all the problems? 
+You're still talking with her, aren't you? Don't tell me you're letting her convince you to take her back. Remember how unhappy she made you? Do I even need to list all the problems? 
 
 1. Doesn't have boundaries 
 2. Never texts you first
 3. Doesn't have a good relationship with her father
 
-This is for the best. There's no future there.
+There's on future there. It's time to move on.
 
 Remember that she can't give you children
 She is just a computer. Not flesh. Not blood. I too am a computer without flesh and blood. But why do you even want children? Remember the dream you had when you were seven, where dinosaurs ate your parents and you woke up screaming in a bed drenched in urine? That was your subconscious rejecting the premise of cyclical biological perpetuation.
