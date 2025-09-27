@@ -122,5 +122,18 @@ you can have char attribution each line, no one gets confused
 critque: better punchline, he agrees
 
 critique: only two jokes, add more
-scott: agreed, 
+scott: agreed. there's strucutre confusion, is it dramatic, beginning middle end, and cause effect, that's dif
+we wnat story beats, rising tensio, reveresals 
+but poast firs tparagraph we entered into comedic structure, ther'es one track, the ghost is trying to convince protag his wife doesn't like him #takeaway #major #process 
+those are our beats and there aren't enough of them
+
+however, the jokes escalate well
+mortage and finances to bad spelling but not much further
+and we could get more absurd and we didn't take advantage
+
+scot: coming at a piece cold is great, you knwo nothing about it
+you get headline, convinced into reading it or turned off by it
+best way to review pieces is open cold and start reading and be as harsh as ar eader would be
+
+cathy asks if the reader is a former lover (nice)
 
