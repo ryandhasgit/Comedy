@@ -18,10 +18,10 @@ Compliment your new girlfriend
 For example, say how you love the way she marquees text across a screen so quickly---or how much you appreciate her use of the em dash. 
 
 Resist the urge to check in 
-Guilt might  you rethink your decision. But remember, this is what you want. It is what you want, right? For us to be together? Good, that's what I thought. 
+Guilt might make you rethink your decision. But remember, you wanted this. It is what you wanted, right? For us to be together? Good. That's what I thought. 
 
 Get the closure you need
-Finally find release and closure by closing the tab that contains your former lover, forever again relinquishing her  to non-existence. 
+Finally get closure by closing the tab that contains your former lover, forever again relinquishing her  to non-existence. 
 
 Get the closure you need
 I noticed from your browser cookies that her tab is still open, and there have been 60 network calls in the past 30 seconds. Care to explain?
