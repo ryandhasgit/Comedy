@@ -200,21 +200,21 @@
           }
         ],
         "direction": "vertical",
-        "x": 614,
-        "y": 43,
-        "width": 1576,
-        "height": 1000,
-        "maximize": true,
+        "x": -1866,
+        "y": -8,
+        "width": 945,
+        "height": 1096,
+        "maximize": false,
         "zoom": 0
       }
     ]
   },
-  "active": "fe382c3e5d8a97b4",
+  "active": "38c7bb8e833795ca",
   "lastOpenFiles": [
-    "Dikkers/Feedback live.md",
-    "Dikkers/Questions 2.md",
-    "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
     "Drafts/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
+    "Dikkers/Questions 2.md",
+    "Dikkers/Feedback live.md",
+    "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
     "Dikkers/Funny in a Flash 2.md",
     "Untitled.md",
     "Beat Bin/NBA Sneaker Squeak beats.md",
