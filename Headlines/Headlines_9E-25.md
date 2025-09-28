@@ -14,4 +14,16 @@ i'm Mr Applebee and this menu is an abomination
 i'm mr applebee and it's insane how we aren't serving live bees
 
 notes from  bobs burger's health inspetion
-notes from hell's kitchen health inspection
+notes from hell's kitchen health inspection #rework
+
+darth vaders schedule as set by his secretary 
+cover letter to be darth v's secretary
+
+a supervillain resume
+a superhero sidekick's resume
+job listing
+
+job listing for batman's new sidekick #rework #candidate 
+to be
+
+
