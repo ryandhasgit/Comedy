@@ -2,16 +2,19 @@
 actually, unsave the date 
 unsave the date
 you are uninvited to our wedding
+Unsave The Date #pitch
 
 i illustrate  the airline safety instucrin booklet and where’s my pulizer
 
 congrats! you're the 1000th customer to read the safety pamphlet
 
-thank you for flying spirit halloween
+thank you for flying spirit halloween 
+Thank You for Flying Spirit Halloween #pitch 
 
 please pay us $100 to deprive you of all sensation 
 
-i got knocked in the head and yet im not the one seeing a cartoon bird dazed and enveloped in a thought bubble coming out of my head 
+i got knocked in the head  yet im not the one seeing a cartoon bird dazed and enveloped in a thought bubble coming out of my head 
+yet i'm not the one seeing cartoon birds dancing
 
 other emotions  we are suspending from the mood ring  (horniness)
 
