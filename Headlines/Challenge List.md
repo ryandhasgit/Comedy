@@ -17,10 +17,12 @@ i got knocked in the head  yet im not the one seeing a cartoon bird dazed and en
 yet i'm not the one seeing cartoon birds dancing
 
 other emotions  we are suspending from the mood ring  (horniness)
+Other Emotions We're Suspending From the Mood Ring #pitch 
 
 report: good deed punished #news
 
 to fight or flight: a quiz 
+To Fight Or Flight: a Quiz #pitch 
 
 updated list of what you can’t yell in a crowded theatre  
 
