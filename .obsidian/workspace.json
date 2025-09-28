@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Headlines/Challenge List.md",
+                "file": "Headlines/Highlights.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Challenge List"
+              "title": "Highlights"
             }
           }
         ]
@@ -172,6 +172,9 @@
   },
   "active": "fe382c3e5d8a97b4",
   "lastOpenFiles": [
+    "Headlines/Challenge List.md",
+    "Headlines/Highlights.md",
+    "Query Tests.md",
     "Dikkers/Funny in a Flash 2.md",
     "Dikkers/Questions 2.md",
     "Dikkers/Funny in a Flash.md",
@@ -181,9 +184,6 @@
     "Headlines/Headlines_9E-25.md",
     "Random/poop joke or time joke.md",
     "Jokes.md",
-    "Query Tests.md",
-    "Headlines/Challenge List.md",
-    "Headlines/Highlights.md",
     "zArchive/Headline Archive/Challenge/Challenge Pitched w votes.md",
     "zArchive/Headline Archive/Challenge/Headlines Summarized.md",
     "Headlines/Headlines_9D-25.md",

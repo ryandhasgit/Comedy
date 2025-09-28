@@ -24,7 +24,7 @@ report: good deed punished #news
 to fight or flight: a quiz 
 To Fight Or Flight: a Quiz #pitch 
 
-updated list of what you can’t yell in a crowded theatre  
+Updated List Of What You Can’t Yell In a Crowded Theatre  #pitch 
 
 hey doc it’s me achilles and uhhhh which heel was it again
 
