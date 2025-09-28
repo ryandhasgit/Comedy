@@ -26,4 +26,11 @@ job listing
 job listing for batman's new sidekick #rework #candidate 
 to be
 
+the batman superstan crossover we've all been waiting for
+
+crossover? the asteroid that killed the dinosaurs just got a sequel!
+
+long-running US democracy cancelled after 249 seasons #news 
+
+
 
