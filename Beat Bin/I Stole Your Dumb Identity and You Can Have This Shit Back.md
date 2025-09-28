@@ -2,6 +2,8 @@ When I found out all your passwords were balls@ck I was stoked. Usually people c
 
 i have to say, it wasn't hard, posing as a beautiful woman to lure you into giving me the answer to your security questions. i mean, i didn't even have to send you the risque pics, you offered up your first attended concert and pets name in your first message. i should have known someone that reckless with such a headlong approach to life would have a negative credit score. 
 
+would saddle me with the worst debt a human can imagine.
+
 now i'm up to my head in debt collectors, i'm behind on a car loan for a Toyota Carola that was incinerated in 2007; and honestly, you can have this shit back.
 
 not to mention the facebook messages from people thinking i'm you.
