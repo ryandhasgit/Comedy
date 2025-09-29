@@ -26,5 +26,9 @@ being really nice to your dying grandfather so you get a good inheritance
 
 regularly calling your family
 
-regularly calling your 
+regularly calling your dying grandfather who...
+
+paying for a life coach
+
+
 
