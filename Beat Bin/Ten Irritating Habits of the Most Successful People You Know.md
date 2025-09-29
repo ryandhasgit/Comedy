@@ -10,4 +10,10 @@ tipping poorly
 
 giving to those in need
 
-giving to those in need 
+family
+
+giving to those i need in your family
+
+lending money to your brother
+(i guess it's his mom making the list? idk man)
+
