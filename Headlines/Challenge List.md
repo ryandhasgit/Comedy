@@ -2,7 +2,7 @@
 actually, unsave the date 
 unsave the date
 you are uninvited to our wedding
-Un-save The Date #pitch
+Un-save the Date #pitch
 
 i illustrate  the airline safety instucrin booklet and where’s my pulizer
 
@@ -24,7 +24,7 @@ report: good deed punished #news
 to fight or flight: a quiz 
 To Fight Or Flight: a Quiz #pitch 
 
-Updated List Of What You Can’t Yell In a Crowded Theatre  #pitch 
+Updated List of What You Can’t Yell in a Crowded Theatre  #pitch 
 
 hey doc it’s me achilles and uhhhh which heel was it again
 
