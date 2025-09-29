@@ -2,7 +2,7 @@
 actually, unsave the date 
 unsave the date
 you are uninvited to our wedding
-Unsave The Date #pitch
+Un-save The Date #pitch
 
 i illustrate  the airline safety instucrin booklet and where’s my pulizer
 
@@ -17,7 +17,7 @@ i got knocked in the head  yet im not the one seeing a cartoon bird dazed and en
 yet i'm not the one seeing cartoon birds dancing
 
 other emotions  we are suspending from the mood ring  (horniness)
-Other Emotions We're Suspending From the Mood Ring #pitch 
+Emotions We're Suspending From the Mood Ring #pitch 
 
 report: good deed punished #news
 
