@@ -35,3 +35,9 @@ paying your life coach another month of life coaching
 
 buying your life coach a whistle 
 
+eat healthy
+
+eat unhealthy
+
+exercise regularly
+
