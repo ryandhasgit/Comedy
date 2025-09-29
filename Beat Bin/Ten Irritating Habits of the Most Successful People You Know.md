@@ -1,4 +1,5 @@
 early rising
+
 getting 2 hours of sleep
 
 smoking cigars
@@ -30,5 +31,7 @@ regularly calling your dying grandfather who...
 
 paying for a life coach
 
+paying your life coach another month of life coaching
 
+buying your life coach a whistle 
 
