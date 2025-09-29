@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Headlines/Challenge List.md",
+                "file": "zArchive/Headline Archive/Challenge/Challenge Pitched w votes.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Challenge List"
+              "title": "Challenge Pitched w votes"
             }
           }
         ]
@@ -172,8 +172,8 @@
   },
   "active": "fe382c3e5d8a97b4",
   "lastOpenFiles": [
-    "Headlines/Highlights.md",
     "Headlines/Challenge List.md",
+    "Headlines/Highlights.md",
     "Query Tests.md",
     "Dikkers/Funny in a Flash 2.md",
     "Dikkers/Questions 2.md",

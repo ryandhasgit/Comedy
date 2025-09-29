@@ -115,6 +115,7 @@ the most secure passwords, ranked
 i’ve come from the future to tell you to litter more 
 
 i’m tupac and it turs out i’m pretty fucking dead #news
+i'm tupac and i'm pretty fucking dead
 
 i wont rest until every sports commercial features kevin hart #sports
 
