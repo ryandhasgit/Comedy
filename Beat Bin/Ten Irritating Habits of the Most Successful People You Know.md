@@ -1,4 +1,5 @@
 early rising
+getting 2 hours of sleep
 
 smoking cigars
 
