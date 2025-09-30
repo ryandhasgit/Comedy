@@ -1,6 +1,9 @@
 4th down terrirtory says jets coach during halftime
 says jets coach with the lead
 says jets coach at own one-yard line
+trailing by 100 #sports 
+
+bar somehow not low enough #news #sports 
 
 Please unsubscribe me from this email list
 
@@ -35,8 +38,11 @@ long-running US democracy cancelled after 249 seasons #news
 testimonials for movie trailers
 movie trailer testimonials for bad films
 
-life coach wearing whistle, for some reason #news 
+life coach wearing whistle for some reason #news 
 
 a dog ate my homework then a larger dog ate that dog 
 
 we are excited to announce our latest efficiency moves 
+
+tips for spotting AI
+
