@@ -55,3 +55,10 @@ the plain car motel is only for hobos
 all the hobos left hoboken
 
 jersey city police car flying cat in the hat shopping spree free carry on ward and upward bound electron microscope
+
+if these walls could talk they would say: paint me
+they would say: white
+they would say: you're fucking the floor, aren't you
+they would say: don't turn around
+they would say: give yourself up, you're surrounded
+
