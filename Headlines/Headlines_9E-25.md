@@ -64,3 +64,12 @@ they would say: give yourself up, you're surrounded
 
 Foot-long footlocker introduces five dollar foot-long
 oscar meyerwiner introduces
+
+government shutdown: 
+congress to attempt to turn on and off government to fix 
+government services won’t be impacted because they’re removed 
+OPINION: i don’t need the government telling me what to do because im a self-sufficient libertarian who lives in the woods and shitd in a bucket 
+why should i pay taxes when i live in the woods and shit in a bucket 
+
+
+
