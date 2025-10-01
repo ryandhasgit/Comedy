@@ -10,6 +10,10 @@ C: last week's moves don't matter. you're in first place this week, you're 12.
 
 how do B & C differ then? 
 
+in B, no matter what you'd be stuck at 12, because whoever is in last place will have top priority on every player for whom they have a waiver. they never move down, they get everything they ask for.
+
+in C, last place gets top priority, but their first move bumps them to 12. you move up to 11. whoever is 2 has their claim processed and you move to 10. the claims are processed in order of priority. not everyone goes for the same player, so last place's move on a different player than you still bumps you higher. this is the same system for A, except your standing last week is penalized by your moves, whereas your standing this week is penalized only by standing, and only for the first pick (after waivers process they're gone until the week's end).
+
 
 however, if someone with higher priority claims a player, they will drop to 12. jon had priority 1 this week. the first player he picks up drops him to 12, and you move up to 11. 
 
