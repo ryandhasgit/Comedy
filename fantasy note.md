@@ -4,6 +4,14 @@ sorry, I misspoke. to combat the very situation I described (moves penalizing yo
 
 under system A: after your move last thurs, you'd be 12. after mine fri, you're 11. come the week's start today (oct 1), you'd have been priority 11 because of past moves. there is on reseeding of priority in this system by standing, only moves. your move thurs would have penalized you. 
 
+under system A: your move thurs and mine friday would give you waiver priority 11. 
+
+under system B: 12
+
+under system C: 12. 
+
+difference between B & C: no matter what, for B, last place will get first dibs on every player they claim. for C, as soon as they successfully claim one person, they move to 12 and everyone else in the priority moves up. 
+
 B: last week's moves don't matter. you're in first place this week, you're 12.
 
 C: last week's moves don't matter. you're in first place this week, you're 12.
