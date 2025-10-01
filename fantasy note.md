@@ -1,8 +1,4 @@
-just want to clear up any confusion and talk through this so i understand it too. i’m going to use your team as an example.
-
-to start the week, here is what your priority would be.
-
-sorry, i misspoke. there is no penalty in this league for adding a player
+let's say 
 
 under system A: after your move last thurs, you'd be 12. after mine fri, you're 11. come the week's start today (oct 1), you'd have been priority 11 because of past moves. there is on reseeding of priority in this system by standing, only moves. your move thurs would have penalized you.
 
