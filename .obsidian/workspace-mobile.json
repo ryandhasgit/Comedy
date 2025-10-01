@@ -39,10 +39,12 @@
             "id": "fa505d04f12294c7",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
-              "icon": "lucide-file",
-              "title": "New tab"
+              "type": "image",
+              "state": {
+                "file": "IMG_4581.png"
+              },
+              "icon": "lucide-image",
+              "title": "IMG_4581"
             }
           }
         ],
@@ -179,6 +181,11 @@
   },
   "active": "fa505d04f12294c7",
   "lastOpenFiles": [
+    "IMG_3780.jpg",
+    "IMG_4587.png",
+    "IMG_4586.png",
+    "IMG_4581.png",
+    "IMG_4585.png",
     "Headlines/Headlines_9E-25.md",
     "well.md",
     "Beat Bin/NBA Sneaker Squeak beats.md",
@@ -205,13 +212,11 @@
     "Beat Bin/Ten Irritating Habits of the Most Successful People You Know.md",
     "Beat Bin/I Stole Your Dumb Identity and You Can Have This Shit Back.md",
     "Misc/IMG_4267.jpg",
-    "IMG_3780.jpg",
     "Random/big bad wolf.md",
     "Misc",
     "Headlines/Headlines Summarized.md",
     "Drafts/NBA Sneaker Squeak.md",
     "Query Tests.md",
-    "Headlines/Alex Baia Challenge.md",
     "Drafts",
     "Beat Bin",
     "Headlines"
