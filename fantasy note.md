@@ -2,9 +2,11 @@ just want to clear up any confusion and talk through this so i understand it too
 
 to start the week, here is what your priority would be.
 
-under system A: after your move last thurs, you'd be 12. after mine fri, you're 11. come the week's start today (oct 1), you'd have been priority 11 because of past moves. there is on reseeding of priority in this system by standing, only moves.
+sorry, i misspoke. there is no penalty in this league for adding a player
 
-B: last week you were in third place (based on my math, so correct me if i'm wrong). all week you'd have been 10th in priority. that would not change based on moves. come today (oct 1) you'd be 12. 
+under system A: after your move last thurs, you'd be 12. after mine fri, you're 11. come the week's start today (oct 1), you'd have been priority 11 because of past moves. there is on reseeding of priority in this system by standing, only moves. your move thurs would have penalized you.
+
+B: last week you were in third place (based on my math, so correct me if i'm wrong), so at the start of last week you'd get 10th priority. to start this week you'd get 12.
 
 C: after your move thurs and mine fri, you're still 11. as of today (oct 1) you'd be 12. 
 
