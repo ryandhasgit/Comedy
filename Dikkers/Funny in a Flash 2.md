@@ -99,7 +99,7 @@ makes it great for you, a piece of day, the shorter the better, it's easier to w
 #FIX: keep it short
 example of modern prose piece from Simon Rich
 (it's two pages, barely 200-300 words)
-enough to get ocncept out
+enough to get concept out
 few beats, punchline at the end
 
 

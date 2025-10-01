@@ -131,5 +131,12 @@ see how they get your beats
 how fast htey go through
 
 ---
-q: waste of time to do mu
+q: waste of time to do multiple tkaes on one concept?
+yeah. if it doesn't work, throw it out.
+if you have a great way to chagne it, do it
+but don't keep going, you'll spin your wheels
+
+---
+
+q for next week: HOW LONG ACCESS TO WRITERS ROOM 
 
