@@ -34,9 +34,19 @@
               "icon": "lucide-file",
               "title": "Headlines_9E-25"
             }
+          },
+          {
+            "id": "fa505d04f12294c7",
+            "type": "leaf",
+            "state": {
+              "type": "empty",
+              "state": {},
+              "icon": "lucide-file",
+              "title": "New tab"
+            }
           }
         ],
-        "currentTab": 1
+        "currentTab": 2
       }
     ],
     "direction": "vertical"
@@ -167,10 +177,10 @@
       "bases:Create new base": false
     }
   },
-  "active": "8acf5660837242c9",
+  "active": "fa505d04f12294c7",
   "lastOpenFiles": [
-    "well.md",
     "Headlines/Headlines_9E-25.md",
+    "well.md",
     "Beat Bin/NBA Sneaker Squeak beats.md",
     "Headlines.md",
     "Drafts/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
