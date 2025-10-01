@@ -39,12 +39,14 @@
             "id": "fa505d04f12294c7",
             "type": "leaf",
             "state": {
-              "type": "image",
+              "type": "markdown",
               "state": {
-                "file": "IMG_4581.png"
+                "file": "Headlines/Headlines_9E-25.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-image",
-              "title": "IMG_4581"
+              "icon": "lucide-file",
+              "title": "Headlines_9E-25"
             }
           }
         ],
@@ -181,10 +183,10 @@
   },
   "active": "fa505d04f12294c7",
   "lastOpenFiles": [
+    "IMG_4581.png",
     "IMG_3780.jpg",
     "IMG_4587.png",
     "IMG_4586.png",
-    "IMG_4581.png",
     "IMG_4585.png",
     "Headlines/Headlines_9E-25.md",
     "well.md",
