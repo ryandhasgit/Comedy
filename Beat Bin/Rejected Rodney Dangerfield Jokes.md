@@ -101,6 +101,10 @@ a struggle ensued and things went black. when i came to, the taxi had veered int
 
 listen to this. once, late at night, i took a taxi down the pacific coast highway and told the driver to run the meter ‘til the wheels fall off. along the way i cracked a joke, said “how’s my passenger-ing?” but this fella, he didn’t even flinch. no respect. it ticked me off, i tell ya. there's a stretch of road where emptiness is illuminated solely by moonlight endlessly in all directions. that summabitch never saw it coming, my gun, pressed nice and tight into his jugular. i said, "what's the matter pal, never had a gun in your neck? never felt the fear of god strike deep into your heart?" but he wasn't having it. a struggle ensued and next thing i know, there was nothing but metal and glass and blood. no driver, no trail, nothing, as if the car drove itself into a tree. but why was i in the backseat? for months i pored over papers and obits and police radios seeking some sign that it was real, or that Jefe, his infant son, awoke the next day, fatherless. but it'd rather ride with him again than let my wife take the wheel!
 
+"you fuck my wife too?"
+cause i tried to sell her to a warlord
+oh boy, this guy
+
 if it'd been my wife driving we'd be dead!
 
 
