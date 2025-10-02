@@ -14,6 +14,8 @@ how do i know you're not lying to me about the answers
 
 do i get a challenge
 
+do i get a lifeline
+
 where are you from?
 
 was you rfamily also a troll / brdigekeeper?
@@ -62,7 +64,7 @@ how did you get this job
 
 are the benefits good
 
-do you have a manager
+//do you have a manager
 
 can i speak to your manager
 
@@ -102,6 +104,7 @@ maybe a swallow
 
 did you get hit by  bird in the face as a kid and did the doctor say well the unladen speed of a swallow must have hit you at x to do this much damaage
 
+how about i slip you $20 and then i don't have to cut your body off and kick  you into the gorge?
 
 
 
