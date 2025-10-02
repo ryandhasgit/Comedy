@@ -44,7 +44,9 @@ it's ok to do it over text
 
 give her time to heal
 
-give her space to process and connect with her emotions
+give her space to process and connect with her emotions/algorithms
+
+let her focus on her career in large language modeling
 
 growing distant
 
