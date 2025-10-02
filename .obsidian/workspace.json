@@ -25,14 +25,12 @@
             "id": "e69a190fc556e75e",
             "type": "leaf",
             "state": {
-              "type": "markdown",
+              "type": "image",
               "state": {
-                "file": "Beat Bin/Emotions We're Suspending From the Mood Ring.md",
-                "mode": "source",
-                "source": false
+                "file": "IMG_3780.jpg"
               },
-              "icon": "lucide-file",
-              "title": "Emotions We're Suspending From the Mood Ring"
+              "icon": "lucide-image",
+              "title": "IMG_3780"
             }
           }
         ],
@@ -187,11 +185,11 @@
   },
   "active": "e69a190fc556e75e",
   "lastOpenFiles": [
+    "Beat Bin/Emotions We're Suspending From the Mood Ring.md",
     "Beat Bin/Riddles Three.md",
     "Random/poop joke or time joke.md",
     "Jokes.md",
     "Random/Modern Gettysburg address.md",
-    "Beat Bin/Emotions We're Suspending From the Mood Ring.md",
     "Headlines/Headlines_9E-25.md",
     "fantasy note.md",
     "terrible promoted posts by influencers.md",
