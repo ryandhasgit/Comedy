@@ -53,3 +53,5 @@ microtrauma
 gaslighting
 attachment style
 psychwashing
+
+red flagschat
