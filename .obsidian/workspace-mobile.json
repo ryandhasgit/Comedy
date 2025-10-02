@@ -55,12 +55,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "fantasy note.md",
+                "file": "Headlines/Headlines_9D-25.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "fantasy note"
+              "title": "Headlines_9D-25"
             }
           }
         ],
@@ -197,9 +197,9 @@
   },
   "active": "7604f6da17cd237b",
   "lastOpenFiles": [
-    "fantasy.md",
-    "fantasy note.md",
     "Headlines/Headlines_9E-25.md",
+    "fantasy note.md",
+    "fantasy.md",
     "IMG_4581.png",
     "IMG_3780.jpg",
     "IMG_4587.png",
