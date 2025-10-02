@@ -43,3 +43,7 @@ refunding the crypto you spent
 
 
 that'll $100 in crypto
+
+## Therapy speak
+
+narcisist tendencies
