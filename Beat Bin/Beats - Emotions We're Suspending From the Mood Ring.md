@@ -48,6 +48,7 @@ Needs to be recalibrated to not go off
 
 Holding in flatulence
 Became an issue in nursing homes
+Needs to be recalibrated to not go off during sex
 
 Frustration 
 
