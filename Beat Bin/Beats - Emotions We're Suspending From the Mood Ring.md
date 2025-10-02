@@ -2,19 +2,30 @@
 
 Horniness
 
-Fear
+Hope (color red)
 
 Light apprehension
 
 The sense of dread looming over the oncoming work week
 
-Hope - Red
+Fear of heights
 
 Hate speech
 
-Physical disgust from vomiting
+Carsickness 
 
-Boredom
+The pit in your stomach from dropping on a roller-coaster
+
+Boredom (currently bright )
+
+Diarrhea 
+
+Drunkenness
+
+Being high
+
+Being drunk and high 
+
 
 
 
