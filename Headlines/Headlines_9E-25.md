@@ -73,3 +73,6 @@ why should i pay taxes when i live in the woods and shit in a bucket
 
 ai reboot of the terminator kinda sucks #news 
 too unwatchable to be hated for political reasons
+
+speaking in riddles, a managers thesaurus 
+a guide to middle-management vernacular

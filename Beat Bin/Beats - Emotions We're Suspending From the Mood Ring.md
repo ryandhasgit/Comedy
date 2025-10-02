@@ -132,6 +132,7 @@ Complaints from environment activists about ocean pollution from yacht parties
 Gluttony
 when activated after the six other deadly sins, leads to a strobe lights
 creates an unholy beam that pierces the heavens
+that can be seen from space
 
 Sin 
 surprise feature activated when pride, greede, wrath, envy, lust, gluttony, and sloth occur simultaneously. 
