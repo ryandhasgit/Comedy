@@ -68,3 +68,7 @@ Minor inconvenience
 Sarcasm
 Ruining a lot of jokes
 
+Menstruation
+Has led to lawsuits from the ACLU
+
+Lying
