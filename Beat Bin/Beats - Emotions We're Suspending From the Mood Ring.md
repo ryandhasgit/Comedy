@@ -28,13 +28,14 @@ The pit in your stomach from dropping on a roller-coaster
 
 Boredom (currently bright red)
 Leading to too many arguments between couples complaining about coworkers.
+recounting their days
 
 Diarrhea 
 See carsickness, but for hot pink.
 sea blue
 
 Drunkenness
-Though functioned as way to prevent drunk driving, lead to excessive binge drinking in college students.
+Though functioned as way to prevent drunk driving, leading to excessive binge drinking in college students.
 
 Being high
 See drunkness.
@@ -44,7 +45,7 @@ Led to the downfall of many bushes. (?)
 
 Hunger
 Would malfunction in the middle of the night and cause strobe lights 
-Needs to be recalibrated to not go off 
+Needs to be recalibrated to not go off during sex
 
 Holding in flatulence
 Became an issue in nursing homes
@@ -70,7 +71,7 @@ Ruining a lot of jokes
 
 Menstruation
 Has led to lawsuits from the ACLU
-Led to too many la
+Led to too many lawsuits from women's rights groups
 
 Lying
 Was being abused on routine traffic stops
@@ -87,5 +88,9 @@ Multiple complaints about turning people into "human coors light cans"
 Constipation 
 Opposite issue of carsickness
 opposite of flatulence
+
+Love
+Kinda gay
+
 
 
