@@ -85,3 +85,6 @@ Multiple complaints about turning people into "human coors light cans"
 
 Constipation 
 Opposite issue of carsickness
+opposite of flatulence
+
+
