@@ -105,6 +105,13 @@ Killed lab rats
 
 Jazz
 Scientists too baffled to ealrn its an emotion
+killed the lab rats
+
+Dislike of jazz
+
+Fear of spiders
+
+Happiness
 
 
 
