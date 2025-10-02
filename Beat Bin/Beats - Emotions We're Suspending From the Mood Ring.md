@@ -75,6 +75,6 @@ Lying
 Was being abused on routine traffic stops
 Too many lawsuits against the NYPD
 
-Eavesdropping / Light intriguie 
-Causing brawls in coffee shops
+Eavesdropping / Light intrigue
+Causing brawls in coffee shops (by eavesdropping patrons)
 
