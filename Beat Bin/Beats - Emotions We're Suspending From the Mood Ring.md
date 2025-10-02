@@ -112,12 +112,15 @@ Dislike of jazz
 
 Fear of spiders
 
-
+Poverty
+Universally hated
 
 The joy of seeing your newborn child smile 
 Too obscure
 
 Happiness
-Overrated
+Underused, overrated
+
+
 
 

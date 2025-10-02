@@ -14,6 +14,8 @@ how do i know you're not lying to me about the answers
 
 do i get a challenge
 
+do i get a lifeline
+
 where are you from?
 
 was you rfamily also a troll / brdigekeeper?
