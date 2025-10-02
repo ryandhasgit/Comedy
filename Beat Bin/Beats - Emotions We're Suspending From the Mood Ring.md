@@ -99,7 +99,7 @@ opposite of flatulence
 needs to be recalibrated to not go off during sex
 
 Love
-Receiving too many complaints about "false negatives" 
+Receiving too many complaints about "false negatives," particularly when ring is presented during proposals
 Kinda gay
 
 Cheese
@@ -129,14 +129,8 @@ Complaints from environment activists about ocean pollution from yacht parties
 
 Sin 
 surprise feature activated when pride, greede, wrath, envy, lust, gluttony, and sloth occur simultaneously. 
-pride
 
-wrath
-
-gluttony
-
-sloth
-
+pride, greed, wrath, envy, lust, gluttony, sloth
 
 
 
