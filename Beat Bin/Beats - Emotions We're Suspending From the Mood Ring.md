@@ -43,6 +43,7 @@ Being high
 See drunkness.
 
 Being drunk and high 
+Caused the ring to flash like a strobe light
 Led to the downfall of many bushes. (?)
 
 Hunger
@@ -111,9 +112,12 @@ Dislike of jazz
 
 Fear of spiders
 
+
+
+The joy of seeing your newborn child smile 
+Too obscure
+
 Happiness
-
-
-
+Overrated
 
 
