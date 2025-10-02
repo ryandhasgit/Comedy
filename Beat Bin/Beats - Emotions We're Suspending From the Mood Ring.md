@@ -121,6 +121,10 @@ Too obscure
 Happiness
 Underused, overrated
 
+Avarice
+Caused ring to be tossed into the ocean from too many yachts
+Caused wall street coke orgies
+
 
 
 
