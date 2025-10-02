@@ -58,7 +58,7 @@ Frustration
 Annoyance
 Ten-fold increase in police reports in cities where the buses were too slow.
 Caused a brawl at the soup kitchen
-Caused a 
+Caused an office brawl 
 
 Terror
 Impeded the sale of newspapers
@@ -78,7 +78,7 @@ Has led to lawsuits from the ACLU
 Led to too many lawsuits from women's rights groups
 
 Lying
-Was being abused on routine traffic stops
+Was being abused at routine traffic stops
 Too many lawsuits against the NYPD
 Being exploited by cops at traffic stops 
 as impromptu polygraph
