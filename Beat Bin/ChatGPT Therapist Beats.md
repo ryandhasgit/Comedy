@@ -40,12 +40,24 @@ I deleted those risque pictures of my harddrive i sent you
 
 refunding the crypto you spent
 
+it's ok to do it over text
+
+give her time to heal
+
+give her space to process and connect with her emotions
+
+growing distant
+
+the distance just isn't working
+
+oh, you're going to throw my words back in my face
+(chat therapist relationship has same pitfalls as chat gf)
+
 
 
 that'll $100 in crypto
 
 ## Therapy speak
-
 narcissistic tendencies
 holding space
 set a boundary
@@ -53,5 +65,4 @@ microtrauma
 gaslighting
 attachment style
 psychwashing
-
-red flagschat
+red flags
