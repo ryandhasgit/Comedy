@@ -74,3 +74,7 @@ Has led to lawsuits from the ACLU
 Lying
 Was being abused on routine traffic stops
 Too many lawsuits against the NYPD
+
+Eavesdropping / Light intriguie 
+Causing brawls in coffee shops
+
