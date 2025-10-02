@@ -76,3 +76,5 @@ too unwatchable to be hated for political reasons
 
 speaking in riddles, a managers thesaurus 
 a guide to middle-management vernacular
+
+introducing triple speak #topical`
