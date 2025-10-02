@@ -1,7 +1,7 @@
 
 
 Horniness
-Originally marketed as the "lady boner setting," customers have had mixed reactions. 
+Originally marketed as the "lady boner setting," customer reactions are mixed. 
 
 Hope (color red)
 
@@ -11,6 +11,8 @@ too many distractions in offices.
 too many office distractions.
 
 The sense of dread looming over the oncoming work week
+Dread 
+keeping spouses awake at night as the work week looms
 Keeping spouses and siblings awake.
 
 Fear of heights
@@ -56,6 +58,7 @@ Frustration
 Annoyance
 Ten-fold increase in police reports in cities where the buses were too slow.
 Caused a brawl at the soup kitchen
+Caused a 
 
 Terror
 Impeded the sale of newspapers
