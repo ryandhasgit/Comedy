@@ -74,7 +74,12 @@ Has led to lawsuits from the ACLU
 Lying
 Was being abused on routine traffic stops
 Too many lawsuits against the NYPD
+Being exploited by cops at traffic stops
 
 Eavesdropping / Light intrigue
 Causing brawls in coffee shops (by eavesdropping patrons)
+Caused five brawls...
+
+Coldness
+Multiple complaints about turning people into "human coors light cans"
 
