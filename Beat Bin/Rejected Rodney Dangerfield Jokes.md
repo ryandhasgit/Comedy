@@ -96,7 +96,7 @@ i don't get no respect, and i don't remember the last time i did. even as a kid 
 a struggle ensued and things went black. when i came to it was just us, no taxi, no road, just two 
 a struggle ensued and things went black. when i came to, the taxi had veered into a tree, but there was nobody, no trail of blood, no signs of life, almsot as if the car had driven itself, as if there was no driver, no fight. i spent weeks looking through the papers, obituaries, listening to police radios--anything to indicate he was real. to this day i don't know if he was a figment of my imagination or his son, Jefe, woke the next day without a father.
 
-when i came to it was just me, the taxi, a tree, broken glass and metal and blood, but no driver, no trail of blood or signs of life, as if the car drove itself into that tree. but why was i in the passenger seat? for months i pored over 
+when i came to it was just me, the taxi, a tree, broken glass and metal and blood, but no driver, no trail of blood or signs of life, as if the car drove itself into that tree. but why was i in the passenger seat? for months i pored over papers, obituaries, police radios--anything that could tell me if someone was reported missing. this day i don't know if the driver was a figment of my imagination, or if Jefe, his son, awoke the nexdt day, fatherless.
 
 i get no respect. once, late at night, i boarded a taxi going home. i asked the driver, hey how's my passenger-ing? and he told me to go to hell. i must've lost consciousness because when i came to, all there was was me and him and a pool of blood, so much blood you couldn't tell whose it was. and that summabitch, all he kept sayign was "please, my family. my family." well, ain't much of a family man now, are we jackie? 
 
