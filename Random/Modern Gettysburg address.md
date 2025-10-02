@@ -7,4 +7,5 @@ four days and seven hours ago our fathers were arrested for inciting a riot
 four score and scene years ago our fathers brought forth… a new nation conceived in fake electors 
 conceived in aggressive traffic stops 
 
-now we are engaged in a great civil war 
+now have an engaged civil department of war  
+
