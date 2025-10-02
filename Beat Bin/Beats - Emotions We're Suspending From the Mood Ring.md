@@ -23,7 +23,7 @@ Caused malfunctions at Trump rallies.
 Became overloaded at Trump rallies, causing the ring to overload and explode.
 
 Carsickness 
-Though functioned as an early-warning system, the ring's hue is creating negative associations with the color green.
+Though functioned as an early-warning system, the ring's hue is creates negative associations with the color green.
 
 The pit in your stomach from dropping on a roller-coaster
 
@@ -37,7 +37,7 @@ See carsickness, but for hot pink.
 sea blue
 
 Drunkenness
-Though functioned as way to prevent drunk driving, leading to excessive binge drinking in college students.
+Though functioned as way to prevent drunk driving, leads to excessive binge drinking in college students.
 
 Being high
 See drunkness.
@@ -66,6 +66,7 @@ the consumption of news
 Led to uninformed citizens fearful of reading the news
 
 Existential dread
+Causes malfunctions and explosions watching the Mets
 Was getting overloaded at Jets games and exploding
 
 Minor inconvenience 
