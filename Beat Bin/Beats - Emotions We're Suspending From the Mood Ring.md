@@ -59,6 +59,7 @@ Caused a brawl at the soup kitchen
 
 Terror
 Impeded the sale of newspapers
+the consumption of news
 Led to uninformed citizens fearful of reading the news
 
 Existential dread
@@ -76,7 +77,8 @@ Led to too many lawsuits from women's rights groups
 Lying
 Was being abused on routine traffic stops
 Too many lawsuits against the NYPD
-Being exploited by cops at traffic stops
+Being exploited by cops at traffic stops 
+as impromptu polygraph
 
 Eavesdropping / Light intrigue
 Causing brawls in coffee shops (by eavesdropping patrons)
@@ -88,9 +90,13 @@ Multiple complaints about turning people into "human coors light cans"
 Constipation 
 Opposite issue of carsickness
 opposite of flatulence
+needs to be recalibrated to not go off during sex
 
 Love
+Too many complaints baout 
 Kinda gay
+
+
 
 
 
