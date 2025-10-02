@@ -93,7 +93,7 @@ opposite of flatulence
 needs to be recalibrated to not go off during sex
 
 Love
-Too many complaints baout 
+Receiving too many complaints about "false negatives" 
 Kinda gay
 
 
