@@ -50,4 +50,17 @@ Became an issue in nursing homes
 Frustration 
 
 Annoyance
-See boredom
+Ten-fold increase in police reports in cities where the buses were too slow.
+Caused a brawl at the soup kitchen
+
+Terror
+Impeded the sale of newspapers
+Led to uninformed citizens fearful of reading the news
+
+Existential dread
+Was getting overloaded at Jets games and exploding
+
+Minor inconvenience 
+
+Sarcasm
+Ruined a
