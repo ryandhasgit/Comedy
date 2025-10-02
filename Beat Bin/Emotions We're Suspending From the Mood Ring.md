@@ -24,7 +24,7 @@ Caused malfunctions at Trump rallies.
 Became overloaded at Trump rallies, causing the ring to overload and explode.
 
 Carsickness 
-Though functioned as an early-warning system, the ring's hue is creates negative associations with the color green.
+Though a good a early-warning system that gives time to find a restroom, the ring's hue is creating negative associations with the color green.
 
 The pit in your stomach from dropping on a roller-coaster
 
