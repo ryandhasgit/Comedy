@@ -2,6 +2,7 @@
 
 Horniness
 Originally marketed as the "lady boner setting," customer reactions are mixed. 
+revealed a lot of foot fetishes 
 
 Hope (color red)
 
@@ -126,6 +127,15 @@ Caused ring to be tossed into the ocean from too many yachts
 Caused wall street coke orgies
 Complaints from environment activists about ocean pollution from yacht parties
 
+Sin 
+surprise feature activated when pride, greede, wrath, envy, lust, gluttony, and sloth occur simultaneously. 
+pride
+
+wrath
+
+gluttony
+
+sloth
 
 
 
