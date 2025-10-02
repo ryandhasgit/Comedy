@@ -127,7 +127,7 @@ Caused ring to be tossed into the ocean from too many yachts
 Caused wall street coke orgies
 Complaints from environment activists about ocean pollution from yacht parties
 
-Sloth
+Gluttony
 when activated after the six other deadly sins, leads to a strobe light
 
 
