@@ -72,3 +72,5 @@ Menstruation
 Has led to lawsuits from the ACLU
 
 Lying
+Was being abused on routine traffic stops
+Too many lawsuits against the NYPD
