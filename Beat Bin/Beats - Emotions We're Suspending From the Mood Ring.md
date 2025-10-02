@@ -18,19 +18,30 @@ Hate speech
 Caused malfunctions at Trump rallies.
 
 Carsickness 
-Though functioned as an early-warning system, the green hue was creating an association with 
+Though functioned as an early-warning system, the ring's hue was creating a negative association with the color green.
 
 The pit in your stomach from dropping on a roller-coaster
 
+
 Boredom (currently bright red)
+Lead to too many arguments between couples complaining about coworkers.
 
 Diarrhea 
+See carsickness, but for hot pink.
 
 Drunkenness
+Though functioned as way to prevent drunk driving, lead to excessive binge drinking in college students.
 
 Being high
+See drunkness.
 
 Being drunk and high 
+Led to the downfall of many bushes. (?)
+
+Hunger
+Needs to be recalibrated to not go off 
+
+Holding in flatulence
 
 
 
