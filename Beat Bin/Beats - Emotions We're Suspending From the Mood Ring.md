@@ -70,6 +70,7 @@ Led to uninformed citizens fearful of reading the news
 Existential dread
 Causes malfunctions and explosions watching the Mets
 Was getting overloaded at Jets games and exploding
+Causing rings to explode watching the Mets
 
 Minor inconvenience 
 
@@ -102,8 +103,8 @@ Love
 Receiving too many complaints about "false negatives," particularly when ring is presented during proposals
 Kinda gay
 
-Cheese
-Killed lab rats
+Cheese lust
+Killing lab rats
 
 Jazz
 Scientists too baffled to ealrn its an emotion
@@ -120,6 +121,7 @@ The joy of seeing your newborn child smile
 Too obscure
 
 Happiness
+Too infrequently utilized to justify its continuation 
 Underused, overrated
 
 Avarice
@@ -128,8 +130,8 @@ Caused wall street coke orgies
 Complaints from environment activists about ocean pollution from yacht parties
 
 Gluttony
-when activated after the six other deadly sins, leads to a strobe light
-
+when activated after the six other deadly sins, leads to a strobe lights
+creates an unholy beam that pierces the heavens
 
 Sin 
 surprise feature activated when pride, greede, wrath, envy, lust, gluttony, and sloth occur simultaneously. 
