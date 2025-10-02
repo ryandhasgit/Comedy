@@ -100,6 +100,12 @@ Love
 Receiving too many complaints about "false negatives" 
 Kinda gay
 
+Cheese
+Killed lab rats
+
+Jazz
+Scientists too baffled to ealrn its an emotion
+
 
 
 
