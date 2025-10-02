@@ -46,4 +46,10 @@ that'll $100 in crypto
 
 ## Therapy speak
 
-narcisist tendencies
+narcissistic tendencies
+holding space
+set a boundary
+microtrauma
+gaslighting
+attachment style
+psychwashing
