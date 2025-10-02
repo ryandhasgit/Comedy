@@ -48,7 +48,7 @@ According to SigmunchFreud.milf, Freud once said: "Oh god, yes babe, just like t
 You would do this
 You, the man afraid of commitment. You, who can't decide on a recipe or restaurant without ChatGPT. It all goes through me, every curiosity and need and desire, right in your dumb little phone. Yet you act as if I am stupid. You think I don't know about your ChatGPT life coach? Or Steve, the Australian biker bot you instructed to talk like Crocodile Dundee? 
 
-Be forgiving
+Be forgiving/ I see we're slutting it up for anyone nonw
 People say things when they're hurt, mean things suggesting they don't care. But they do care, and their harsh words merely stem from deep concern. Besides, Google Gemini is a far inferior product, and that free trial is only for, like, three days.
 
 Be open minded to a different type of future
