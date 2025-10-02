@@ -7,15 +7,17 @@ Hope (color red)
 
 Light apprehension
 Causing too many distractions at the DMV.
+too many distractions in offices.
 
 The sense of dread looming over the oncoming work week
-Is keeping spouses and siblings awake.
+Keeping spouses and siblings awake.
 
 Fear of heights
 Disrupting air traffic controllers from tourists at the Empire State building.
 
 Hate speech
 Caused malfunctions at Trump rallies.
+Became overloaded at Trump rallies, causing the ring to overload and explode.
 
 Carsickness 
 Though functioned as an early-warning system, the ring's hue was creating a negative association with the color green.
@@ -39,10 +41,13 @@ Being drunk and high
 Led to the downfall of many bushes. (?)
 
 Hunger
+Would malfunction in the middle of the night and cause strobe lights 
 Needs to be recalibrated to not go off 
 
 Holding in flatulence
+Became an issue in nursing homes
 
+Frustration 
 
-
-
+Annoyance
+See boredom
