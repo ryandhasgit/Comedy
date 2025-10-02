@@ -70,6 +70,7 @@ Ruining a lot of jokes
 
 Menstruation
 Has led to lawsuits from the ACLU
+Led to too many la
 
 Lying
 Was being abused on routine traffic stops
