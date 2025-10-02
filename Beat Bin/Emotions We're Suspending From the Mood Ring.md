@@ -74,6 +74,12 @@ Causing rings to explode watching the Mets
 
 Minor inconvenience 
 
+post partem depression
+heresy 
+
+Skepticism 
+
+
 Sarcasm
 Ruining a lot of jokes
 
@@ -114,6 +120,10 @@ Dislike of jazz
 
 Fear of spiders
 
+fear of commitment
+
+Confusion
+
 Poverty
 Universally hated
 
@@ -122,6 +132,7 @@ Too obscure
 
 Happiness
 Too infrequently utilized to justify its continuation 
+continuing to suppor the feature
 Underused, overrated
 
 Avarice
