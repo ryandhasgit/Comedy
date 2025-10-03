@@ -11,7 +11,7 @@ I ain’t no prize neither. I went to a bachelor auction and I wound up having t
 
 I haven’t gotten much action lately. Even my dog won’t kiss me. I said, listen pal, half the time you're licking your balls; you sayin’ mine ain’t good enough for ya? Anybody? Anybody?
 
-My wife—listen to this—she hates my guts, probably because of the prostitutes and that I tried to sell her to a warlord. She hates me so much she poisoned me with a toxin found only in goldfish. I said, it’s bad enough you tried to kill me, but you gotta off my aquarium too? 
+My wife—listen to this—she hates my guts, probably because of the prostitutes and that I tried to sell her to a warlord. She hates me so much she poisoned me with a toxin found in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
 
 I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor, this audience—nobody. Sometimes, at night, I sit by the phone with a fast-action single-pump revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
 
