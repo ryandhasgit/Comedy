@@ -21,7 +21,7 @@ Boy, is it tough being a comedian. I'm constantly broke. My wife's banging my ne
 
 Listen to this, will ya? Once, in the dead of night, I took a taxi up the pacific coast highway headed anywhere but home. There's this stretch where emptiness is illuminated endlessly by lonely moonlight. I joked to the driver, “How’s my passenger-ing?” but this fella didn’t flinch. Maybe it was the booze or his contemptible mug, but boy did that disrespect tick me off. The sumbitch never saw it coming, my gun, pressed nice and tight into his neck. I screamed, "Cat got your tongue, pal? You shtuppin’ my wife too?” Then there was nothing but metal and glass and blood—no driver, no trail leading to some lifeless wretch—just me in the backseat, as if the car flipped itself. I pored over newspapers and obits and police scanners for months, but never found out if lil' Felipe, his infant son, awoke fatherless the next day, or if it was all a dream. 
 
-Still better than letting my wife drive! 
+Still better than letting my wife drive! But hey, you guys have been great. Nothing quite like a captive audience
 
 Why's everyone laughing? Ain’t you supposed to be pumping my stomach, Doc? This goldfish business is no joke. I feel like a battery with all these wires in me. I got more cords than a rock band, I tell ya. Listen, I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? 
 
