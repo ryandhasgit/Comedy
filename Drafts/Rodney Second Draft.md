@@ -5,24 +5,25 @@ I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds l
 
 My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it was any man but me, and she threatened to drive us off a cliff. How 'bout that? The first promise I thought she might actually keep!
 
-I got no sex life. Even my dog won’t kiss me. Half the time he's licking his balls, but I guess mine ain't good enough for him.
+I got no sex life. Even my dog won’t kiss me. Half the time he's licking his balls, but I guess mine ain't good enough for him. Anybody? Anybody?
 
-I’m not finding much respect these days. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was wearing a blindfold the whole time!" 
+I’m not finding much respect these days. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
 
-She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. Anybody? Anybody?
+She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. 
 
 But I ain’t no prize neither. I went to a bachelor auction and wound up having to pay a girl to date me. So ya know, just another Friday night. 
 
-My wife—listen to this—she hates me, probably 'cause of all the prostitutes and my trying to sell her to a warlord. She hates my guts so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
+My wife—listen to this—she hates me, probably 'cause of all the prostitutes and my trying to sell her to a Burmese warlord. She hates my guts so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
 
 I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor—nobody. Sometimes at night, I sit by the phone with a single-action revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
 
 Boy, is it tough being a comedian. I'm constantly broke. My wife's banging my neighbor. I'm not getting any respect. So I pawned my mother's gold tooth that I stole outta her mouth while she was getting her tubes tied. She did it cause I was begging for money and she wouldn't lend me none, even if it meant I'd lose my house, even with a gun in her face. She said she didn’t wanna make the same mistake and got ‘em tied at eighty-five, just in case!
 
-Listen to this doozy. Once, in the dead of night, I took a taxi up the pacific coast highway headed anywhere but home. There's this stretch where emptiness is illuminated endlessly by lonely moonlight. I cracked a joke, “How’s my passenger-ing?” but this fella didn’t flinch. Maybe it was the booze or his contemptible mug, but boy did that disrespect tick me off. The sumbitch never saw it coming, my gun, pressed nice and tight into his neck. I screamed, "Cat got your tongue, pal? You shtuppin’ my wife too?” Then there was nothing but metal and glass and blood—no driver, no trail leading to a lifeless retch—just me in the backseat, as if the car flipped itself. I pored over newspapers and obits and police scanners for months, but never found out if lil' Felipe, his infant son, awoke the next day fatherless, or if it was all a dream. 
+Listen to this doozy. Once, in the dead of night, I took a taxi up the pacific coast highway headed anywhere but home. There's this stretch where emptiness is illuminated endlessly by lonely moonlight. I cracked a joke, “How’s my passenger-ing?” but this fella didn’t flinch. Maybe it was the booze or his contemptible mug, but boy did that disrespect tick me off. The sumbitch never saw it coming, my gun, pressed nice and tight into his neck. I screamed, "Cat got your tongue, pal? You shtuppin’ my wife too?” Then there was nothing but metal and glass and blood—no driver, no trail leading to a lifeless retch—just me in the backseat, as if the car flipped itself. I pored over newspapers and obits and police scanners for months, but never found out if lil' Felipe, his infant son, awoke fatherless 
+the next day, or if it was all a dream. 
 
 Still better than letting my wife drive! 
 
-Woah, what's everyone laughing at? Doc, ain’t you supposed to be pumping my stomach? This goldfish business is no joke. I feel like a battery with all these wires in me. I got more cords than a rock band, I tell ya. Listen, I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? 
+You’ve been a great audience, but ain’t you supposed to be pumping my stomach, Doc? This goldfish business is no joke. I feel like a battery with all these wires in me. I got more cords than a rock band, I tell ya. Listen, I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? 
 
 You guys have been great. I’m gonna go into a coma now. 
