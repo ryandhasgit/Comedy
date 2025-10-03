@@ -21,8 +21,10 @@ Boy, is it tough being a comedian. I'm constantly broke. My wife's banging my ne
 
 Listen to this, will ya? Once, in the dead of night, I took a taxi up the pacific coast highway headed anywhere but home. There's this stretch where emptiness is illuminated endlessly by lonely moonlight. I joked to the driver, “How’s my passenger-ing?” but this fella didn’t flinch. Maybe it was the booze or his contemptible mug, but boy did that disrespect tick me off. The sumbitch never saw it coming, my gun, pressed nice and tight into his neck. I screamed, "Cat got your tongue, pal? You shtuppin’ my wife too?” Then there was nothing but metal and glass and blood—no driver, no trail leading to some lifeless wretch—just me in the backseat, as if the car flipped itself. I pored over newspapers and obits and police scanners for months, but never found out if lil' Felipe, his infant son, awoke fatherless the next day, or if it was all a dream. 
 
-Still better than letting my wife drive! But hey, you guys have been great. Nothing quite like a captive audience
+Still better than letting my wife drive!
 
-Why's everyone laughing? Ain’t you supposed to be pumping my stomach, Doc? This goldfish business is no joke. I feel like a battery with all these wires in me. I got more cords than a rock band, I tell ya. Listen, I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? 
+But this goldfish business is no joke. I might go belly up myself. What're you laughing for, Doc? Ain't you supposed to be pumping my stomach? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. I’d love to sign your liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? I mean, I guess I'm a lucky guy, 'cause at the end I can look death in the face and ask, "What took ya so long?" I tell ya. He was probably banging my wife!
+
+You guys have been great, but I've got a coma to get to!
 
 You guys have been great. I’m gonna go into a coma now. 

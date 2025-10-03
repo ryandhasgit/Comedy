@@ -151,7 +151,9 @@ ya know
 
 Still better than letting my wife drive!  
 
-But this goldfish business is no joke. I might go belly up myself. What's so funny, Doc? Ain't you supposed to be pumping my stomach? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. I’d love to sign your liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? I mean, I guess I'm a lucky guy, 'cause I get to look death in the face and say "Hey pal, what took ya so long?" I tell ya. 
+But this goldfish business is no joke. I might go belly up myself. What're you laughing for, Doc? Ain't you supposed to be pumping my stomach? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. I’d love to sign your liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? I mean, I guess I'm a lucky guy, 'cause at the end I can look death in the face and ask, "What took ya so long?" I tell ya. He was probably banging my wife!
+
+You guys have been great, but I've got a coma to get to!
 
 
 --------
