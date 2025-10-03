@@ -23,6 +23,6 @@ Listen to this doozy. Once, in the dead of night, I took a taxi up the pacific c
 
 But hey, better than letting my wife drive!
 
-Woah, what's everyone laughing at? Doc, ain’t you supposed to be pumping my stomach? This goldfish business is no joke. I feel like a car battery with all these wires in me. I got more cords than a rock band, I tell ya. Listen, I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? 
+Woah, what's everyone laughing at? Doc, ain’t you supposed to be pumping my stomach? This goldfish business is no joke. I feel like a battery with all these wires in me. I got more cords than a rock band, I tell ya. Listen, I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? 
 
 You guys have been great. I’m gonna go into a coma now. 
