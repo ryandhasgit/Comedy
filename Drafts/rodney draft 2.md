@@ -3,15 +3,15 @@ My wife, I tell ya. She and I never have sex. The other day I wanted to do forep
 
 I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds like there’s no E? Just R-E-S-P-C-T? That’s the kind of respect I get. I tell ya.
 
-She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal.
+My wife's a terrible driver. Can't keep her eyes on the road. I told her to pretend it was any man but me, and she threatened to drive us off a cliff! How 'bout that? The first promise she might actually keep!
 
-I tell ya, my wife's a terrible driver. Can't keep her eyes on the road. I told her to pretend it was any man but me, and she threatened to drive us off a cliff! How 'bout that? That's the first promise she might actually keep!
+I got no sex life. Even my dog won’t kiss me. Half the time he's licking his balls, but I guess mine ain't good enough for him? Anybody? Anybody?
 
 I’m not finding much respect these days. I asked my neighbor, "You seen my wife?" He replied, "Not really, I was wearing a blindfold the whole time!"
 
-But I ain’t no prize neither. I went to a bachelor auction and wound up having to pay a girl to date me! So ya know, just another Friday night. 
+She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal.
 
-I got no sex life. Even my dog won’t kiss me. Half the time he's licking his balls, but I guess mine ain't good enough for him? Anybody? Anybody?
+But I ain’t no prize neither. I went to a bachelor auction and wound up having to pay a girl to date me! So ya know, just another Friday night. 
 
 My wife—listen to this—she hates my guts, probably 'cause of all the prostitutes and my trying to sell her to a warlord. She hates me so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
 
