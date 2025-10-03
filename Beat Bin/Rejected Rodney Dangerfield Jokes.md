@@ -151,7 +151,7 @@ ya know
 
 Still better than letting my wife drive!  
 
-Listen, this goldfish business is no joke. I might go belly up myself. Why youse all laughing? Ain't you supposed to be pumping my stomach, Doc? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? But I guess I'm a lucky guy, 'cause I get to look death in t
+But this goldfish business is no joke. I might go belly up myself. What's so funny, Doc? Ain't you supposed to be pumping my stomach? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. I’d love to sign your liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? I mean, I guess I'm a lucky guy, 'cause I get to look death in the face and say "Hey pal, what took ya so long?" I tell ya. 
 
 
 --------
