@@ -149,9 +149,9 @@ i tell ya the truth, my wife and i have never been about
 ya know
 
 
-Still better than letting my wife drive! But hey, you guys have been great. Nothing quite like a captive audience
+Still better than letting my wife drive!  
 
-Why's everyone laughing? Ain’t you supposed to be pumping my stomach, Doc? This goldfish business is no joke. I feel like a battery with all these wires in me. I got more cords than a rock band, I tell ya. Listen, I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? 
+Listen, this goldfish business is no joke. I might go belly up myself. Why youse all laughing? Ain't you supposed to be pumping my stomach, Doc? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? But I guess I'm a lucky guy, 'cause I get to look death in t
 
 
 --------
