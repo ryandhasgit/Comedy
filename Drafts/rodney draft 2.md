@@ -13,9 +13,9 @@ She’s no looker, my wife. You couldn't sell her if you tried, and I tried! The
 
 But I ain’t no prize neither. I went to a bachelor auction and wound up having to pay a girl to date me. So ya know, just another Friday night. 
 
-My wife—listen to this—she hates my guts, probably 'cause of all the prostitutes and my trying to sell her to a warlord. She hates me so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
+My wife—listen to this—she hates me, probably 'cause of all the prostitutes and my trying to sell her to a warlord. She hates my guts so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
 
-I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor, this audience—nobody. Sometimes at night, I sit by the phone with a single-action revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
+I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor—nobody. Sometimes at night, I sit by the phone with a single-action revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
 
 Boy, is it tough being a comedian. I'm constantly broke. My wife's banging my neighbor. I'm not getting any respect. So I pawned my mother's gold tooth. See, I pried it outta her mouth last month. She got her tubes tied, ‘cause I came around asking for money and she wouldn't lend me none, even if it meant I'd lose my house, even with a gun in her face. Told me she wished I'd never been born and got 'em tied at eighty-five, just in case!
 
