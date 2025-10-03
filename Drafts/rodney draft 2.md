@@ -11,9 +11,9 @@ But I ain’t no prize neither. I went to a bachelor auction and wound up having
 
 I'm not gettin' much action lately. Even my dog won’t kiss me. Half the time he's licking his balls, but I guess mine ain't good enough for him? Anybody? Anybody?
 
-My wife—listen to this—she hates my guts, because of all the prostitutes and my trying to sell her to a warlord. She hates me so much she poisoned me with a toxin found in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
+My wife—listen to this—she hates my guts, probably 'cause of all the prostitutes and my trying to sell her to a warlord. She hates me so much, she poisoned me with a toxin found only in goldfish. I mean, it’s bad enough she tried to kill me, but she gotta off my aquarium too? 
 
-I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor, this audience—nobody. Sometimes, at night, I sit by the phone with a fast-action single-pump revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
+I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor, this audience—nobody. Sometimes at night, I sit by the phone with a fast-action single-pump revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
 
 Oh boy, is it tough being a comedian. I'm constantly broke. My wife left me for my neighbor. I'm not getting any respect. So I tried selling my mother's gold tooth at a pawn shop. See, I pried it outta her during her last month. She got her tubes tied, even though she's elderly, ‘cause one day I came around asking for money and she wouldn't lend me none, even if it meant I'd lose my house, even with a gun in her face. Told me she wished I'd never been born and got 'em tied anyway!
 
