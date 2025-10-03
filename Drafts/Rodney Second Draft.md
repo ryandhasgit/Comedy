@@ -5,11 +5,11 @@ I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds l
 
 My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it was any man but me, and she threatened to drive us off a cliff. How 'bout that? The first promise I thought she might actually keep!
 
-I got no sex life. Even my dog won’t kiss me. Half the time he's licking his balls, but I guess mine ain't good enough for him! 
+I got no sex life. Even my dog won’t kiss me. Half the time he's licking his balls, but I guess mine ain't good enough for him.
 
-I’m not finding much respect these days. I asked my neighbor, "You seen my wife?" He replied, "Not really, I was wearing a blindfold the whole time!" Anybody? Anybody?
+I’m not finding much respect these days. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was wearing a blindfold the whole time!" 
 
-She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal.
+She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. Anybody? Anybody?
 
 But I ain’t no prize neither. I went to a bachelor auction and wound up having to pay a girl to date me. So ya know, just another Friday night. 
 
