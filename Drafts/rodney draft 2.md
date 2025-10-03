@@ -5,13 +5,13 @@ I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds l
 
 My wife, she’s no looker. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal.
 
-I’m not finding much respect these days. I asked my neighbor, "You seen my wife?" He said, "Not really, I was wearing a blindfold the whole time!"
+I’m not finding much respect these days. I asked my neighbor, "You seen my wife?" He replied, "Not really, I was wearing a blindfold the whole time!"
 
 But I ain’t no prize neither. I went to a bachelor auction and wound up having to pay a girl to date me! So ya know, just another Friday night. 
 
-I'm not gettin' much action lately. Even my dog won’t kiss me. I said, listen pal, half the time you're licking your balls; you saying mine ain’t good enough for ya? Anybody? Anybody?
+I'm not gettin' much action lately. Even my dog won’t kiss me. Half the time he's licking his balls, but I guess mine ain't good enough for him? Anybody? Anybody?
 
-My wife—listen to this—she hates my guts, probably because of the prostitutes and that I tried to sell her to a warlord. She hates me so much she poisoned me with a toxin found in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
+My wife—listen to this—she hates my guts, because of all the prostitutes and my trying to sell her to a warlord. She hates me so much she poisoned me with a toxin found in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
 
 I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor, this audience—nobody. Sometimes, at night, I sit by the phone with a fast-action single-pump revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
 
