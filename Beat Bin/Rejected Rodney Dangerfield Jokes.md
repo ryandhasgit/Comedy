@@ -103,8 +103,7 @@ listen to this. once, late at night, i took a taxi down the pacific coast highwa
 
 once, in the dead of night, i took a taxi up the pacific coast highway, headed anywhere but home. along the way i cracked a joke, said “how’s my passenger-ing?” but this fella didn’t flinch. absolutely no respect. maybe it was the booze or his look of cold indifference, but boy, did it tick me off. well, there's a stretch of road where emptiness is illuminated endlessly in all directions solely by moonlight. that summabitch never saw it coming, my gun, pressed nice and tight into his jugular. i screamed, "what's the matter pal, cat got your tongue? you fuckin’ my wife too?” a struggle ensued and next thing i know there was nothing but metal and glass and blood. no driver, no trail—as if the car drove itself into a ditch. but why was i in the backseat? for months, to no avail i pored over the papers and obits and police scanners for a sign it wasn’t a figment of my imagination—whether Jefe, his infant son, awoke that next day fatherless. but hey, i’d rather ride with him again than let my wife take the wheel!
 
-
-
+ stretch where emptiness is illuminated endlessly by lonely moonlight. I joked to the driver, “How’s my passenger-ing?” but this fella didn’t flinch. Maybe it was the booze or his contemptible mug, but boy did that disrespect tick me off. The sumbitch never saw it coming, my gun, pressed nice and tig
 
 "you fuck my wife too?"
 cause i tried to sell her to a warlord
