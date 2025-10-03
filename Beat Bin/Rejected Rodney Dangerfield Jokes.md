@@ -133,7 +133,7 @@ i tell ya, my wife got her license the other day. if you ain't a religious main 
 
 i tell ya, she's such a bad driver, my wife. we were driving down the long island expressway. i told her, hey honey, can you keep your eyes on the road? just pretend it's any man but me. oh boy, she did not like that, cause the next thing i know we're in the dirt, airbag deployed, car on its side. except my airbag didn't fire cause someone stuck a bobby pin in it, the same kid my wife wears in her hair. i said, honey, ain't that something, you didn't lose it after all. i said, aint' that something, you backstabbing two-timing harlot. i ain't never buying you any beauty prodcuts again. what would've happened if i bought you a curling iron , would that be in me isntead?  
 
-I tell ya, my wife's a terrible driver. Can't keep her eyes on the road. So I told her to  pretend it was any man but me. She went on about how she was gonna kill me. That might be the only thing she's ever said that ain't a lie!
+I tell ya, my wife's a terrible driver. Can't keep her eyes on the road. So I told her to  pretend it was any man but me, and she threatened to kill me! I said, "Honey, that's the first promise of yours I actually believe!"
 
 get this, my wife. one day she tells me she's gonna stab my eyes out if i don't stop oggling these other women. i say, honey, that's progress! i'm only used to getting that treatment in the back!
 
