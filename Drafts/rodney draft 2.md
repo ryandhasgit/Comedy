@@ -21,6 +21,6 @@ Once, in the dead of night, I took a taxi up the pacific coast highway headed an
 
 But hey, I’d rather ride take that ride again than let my wife drive!
 
-Why’s everybody laughing here? Ain’t you supposed to be pumping my stomach? She really did it this time, my wife. Doc, you gotta have so many wires in me? I feel like a car battery. I mean, I've got more cords here than a rock band, I tell ya. Listen, I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? 
+Why’s everybody laughing here? Doc, ain’t you supposed to be pumping my stomach? Oh boy, this goldfish business is no joke. Why there gotta be so many wires in me, doc? I feel like a car battery. I mean, I've got more cords here than a rock band, I tell ya. Listen, I’d love to sign these liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? 
 
 you guys have been great. i’m gonna go into a coma now. 
