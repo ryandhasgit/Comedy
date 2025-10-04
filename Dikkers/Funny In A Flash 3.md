@@ -222,6 +222,30 @@ she sumitted and it was done by another actor
 
 she is wondering if her specific take on this, it's about punching up, 
 
+a: i gogole something, don't watch, and if someone sees something similar, he writes first, then does researcha nd watches it to make sure his isn't similar after
+
+q: rani is struggline to pick platofrm. do you pick one and stick with it and hit it?
+a: don't just hit 1, best practice is put it everywhere cause you don't knwo where it will get the most traction #takeaway 
+
+puting things out there is practice
+you see what works and doesn't
+you have expeirence that's helful in submitting, even if you're not putting it out there for the gatekeepers #takeaway #major 
+
+think of it like a journal, or private store of pieces, they could be in drawer or on substack and medium
+if nobody sees them that's the same as in your drawer
+ifs omeone looks at them and likes them, that's a a win
+
+q: shoudl we not piss people off after "this"
+a: i've always hated fascism and i've always been a hrge free speech, he'sa  free speech abosluteist and anybody has the right to disagree
+grew up hating hitler
+
+having an arm of gvt, fcc, threatening someone's speech, mocking our dear leader, it's horrifying
+
+jimmy k doesn't have right to have a tv show
+what about our voice
+it was the act of fcc chairman
+a stooge , a bureaucrat 
+
 
 ---
 
