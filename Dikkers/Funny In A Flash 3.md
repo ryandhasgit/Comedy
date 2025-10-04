@@ -63,7 +63,7 @@ they're not the only places you can write
 you can write anywhere, any social media platform
 can start your own blog
 
-megan amram started on twitter and then moved that into tv writing
+megan amram started on twitter and then moved that into tv writing #examples 
 wrote a book #homework 
 she didn't go traidtional route and tried to get published
 she just started writing and put it on a compouter
@@ -72,7 +72,7 @@ this is how you should think aout your dist channel #takeaway #quote
 this is the world and you can put it out however you want
 no gates
 
-connor o'malley 
+connor o'malley #examples 
 soctt found him on youtbue with like 100 followers
 and scott thought he was so funny he invited him to the onion office to meet him and see if they could work together
 
@@ -82,13 +82,41 @@ he was doing short pose writing and putting it on amazon review! #major
 great way to get writing out there, and got him discovered, and he got hired tow rite late night with seth meyers
 
 very exciting to people in the industry
-people so efusively creative that the
-#exmaple
+people so efusively creative that thei rwriting flows wherever they can make it
+doesn't wait for a gatekeeper to let it pass
 
+Caitlin Kunkel has a list of publicaitons #homework 
 
-# Mistake 21
+you have some that hit more than others
+learn and adjust
+sometimes it's a parody 
+studio 360 parody account
+this guy created alt universe where show didn't get cnaceled
+and this was the twitter feed #takeaway 
+andt his caught fire, he got hired to write for comedy banfg bang and seth meyers
 
+you can go on tiktok with short-writing
+a lot of people use this to get a huge num of eyeballs on writing #takeaway #homework 
+people post short writing, sentence or two on ig, facebook
+they do retweets they screnshot on these platforms
 
+if you get one that does well on twitter, abnormally well, you can retweet, screenshot for somewhere else
+someties they find new life
+LEGITIMATE SHORTFORM HUMOR WRITING
+if nothing else it's concepts somosne can spool out into a short piece #quote #takeaway 
+
+chris wofl says he did hudnreds of tiktoks to see what works
+
+#FIX: Make your humor flow like water
+just let it go wherever it can go and don't wait for anyone to let it in #quote 
+
+gary janetti family guy great posts #people 
+
+"punch up guy on family guy" ?
+
+"Cathy is on substack posting every week " (someone )
+
+# Mistake 21: 
 # Mistake 22
 
 
