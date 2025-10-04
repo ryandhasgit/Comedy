@@ -114,13 +114,44 @@ gary janetti family guy great posts #people
 
 "punch up guy on family guy" ?
 
-"Cathy is on substack posting every week " (someone )
+"Cathy is on substack posting every week " (someone in the class)
 
-# Mistake 21: 
+
+# Mistake 21: Punching down
+Reminds of mistake 4 (your writing isn't likeable)
+when you punch down and not up or lift up, your writing is very unlikeable and you lose a lot of people
+in addition ato hooks, foreshowding, unsawered mysteries, mostifs, funny filters #takeaway 
+another to add is to not punch down 
+
+it also means lift-up #quote #takeaway 
+lift up:
+the people you don't want to punch is the afflicted, down on their luck, disenfranchised, marginalized
+when you make fun of them, audiences don't like, and it won't work well, unlikeable writing
+
+you are welcome to go after the comfortable, powerful, rich, entrenched institutions, society
+people like seeing them brought down to size #takeaway 
+
+#FIX : Comfort the afflicted and afflict the comfortable
+stick to this
+if you afflicted the afflicted, you've crossed a line
+if you comfort hte comfy, people will think it's fascist comedy
+
+q: funny photos with captions?
+a: great. one categories of humor
+
+q: where do we find categories of humor
+
+"make a list of concepts" #homework 
+
+being timely is a way to break through the no-viewer jail #quote #takeaway 
+will get passed around more than what's evergreen
+
+q: corey pajka struggles with timely humor and news cycle moves so quickly within 48 hours it's stale
+a: it's brutal
 # Mistake 22
 
 
-## Questions
+# Questions
 
 q: how to avoid cliches? 
 a: google or check list
@@ -131,7 +162,7 @@ a: and then biff said he isn't doing that well (gen descrip of health)
 he felt as if his face was soaking in walrus vomit all morning (specific description)
 
 
-## Piece Review
+# Piece Review
 
 
-## My Piece
+# My Piece
