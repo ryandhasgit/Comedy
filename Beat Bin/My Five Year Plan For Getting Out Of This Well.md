@@ -1,4 +1,11 @@
 
+
+request pto, reason: stuck in a well
+have pto request denied 
+set oit of office 
+
+(has service, he’s not calling police because hustle grind) #note
+
 scream, “anyone there? i fell in a well” 
 
 try to set an out of office reply and realize i have no service
