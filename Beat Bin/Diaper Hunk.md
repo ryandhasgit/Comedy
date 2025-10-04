@@ -1,7 +1,7 @@
 
 I'm the beefy hunk on those adult diapers packages and here are the reasons I keep shitting myself
 
-‘Sup, bro? You’ve probably seen me in the grocery store on the label of those adult diapers and thought: what's this jacked heartthrob doing modeling for adult diapers? Aren’t these products marketed toward the decrepit and elderly? Listen, poindexter. Old people aren’t the only ones whose bodily waste flows like Niagra Falls. Even an adonis like me struggles with incontinence, and here’s why.
+‘Sup, bro? You’ve probably seen me in the grocery store on the label of those adult diapers and thought: what's this jacked heartthrob doing modeling adult diapers? Aren’t these products marketed toward the decrepit and elderly? First of all, that's pretty ageist, bro. And old people aren’t the only ones whose bodily waste flows like Niagra Falls. Even an adonis like me struggles with incontinence, and here’s why.
 
 protein shakes (only, no water)
 flexing too hard in the mirror 
