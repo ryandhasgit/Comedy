@@ -441,39 +441,40 @@ they'll see them and not get through them
 plant the game of scene right away
 so we know these are gonna be rejected because they'r esuper dark
 
-what was funny about the darkness was he gest no respect
+"what was funny about the darkness was he gest no respect
 he's down and out
-so let's heighten that
+so let's heighten that" #major
 so he's really dwon and out
 he's really in troulbe and struggling
 then its' nto funny
 and it's depressingt
 to hear him say it
+(but funny?)
 
 i have cadence and srtructure perectly
 it's parodya
-and it's meta humor
+and it's meta humor, which i love
 
-cut some of jokes that seem to real*
+cut some of jokes that seem too real* [real as in, jokes he would do, literally]
 and not ehightened enough
-and dig in more to the really dark horrible stuff
+and dig in more to the really dark horrible stuff #major 
 
 evfen when he was selling wife to burmeese warlord
 
-he thoguth itw as escalating up from where we started
+you  thoguth itw as escalating up from where we started
 people escalate too little and too late
 
 start right away 
 i get no respect cause i'm broke 
 wshen he had his gun
 nobody respects him so the gun is there
-he thought it was going to go to suicide
+scott thought it was going to go to suicide
 he was gonna fof hismelf
 figures out who he is gonna off on his way out
 
 just super dark
 is the way to go with this
-and then he lieks that gets absurd
+and then scott lieks that it gets absurd
 and dark
 where he's murdering a taxi drvier
 good escaltaion
