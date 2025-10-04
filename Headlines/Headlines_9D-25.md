@@ -68,7 +68,7 @@ if you're such a fan of the english language, name 5 future present gerunds
 
 things we can all disagree on
 things we can all agree on
-things we can't all not disagree on #candidate 
+Things We Can't All Not Disagree On #pitch 
 ptentially disagree one
 
 campbells soup 
@@ -98,6 +98,7 @@ steve
 everybody is hereby called steve
 named steve
 (company ceo or something)
+Everyone is Hereby Named Steve #pitch 
 
 ideas for other left-handed office supplies
 supplies
@@ -134,19 +135,19 @@ recycle licorice
 you're eating licorice wrong
 
 if other words were spelled like licorice #candidate 
-if names were spelled like pneumonia
+if names were spelled like pneumonia #rework
 pneumonia
 
 i can't tell you hwo hard it is to find a photographer for the bris
 i'm a photographer and there's a good reason i won't do a bris
 and i refuse to do your bris
 and i reluctantly agree to do your bris (maybe he's an adult cnvert lol)
-i'm the foreskin fairy 
+i'm the foreskin fairy and mazel tov!
 
 chatgpt therapist to require bitcoin #news 
 
 transcript: zipporah at the inn
-zipporah at the inn, a one-woman monologue
+Zipporah At the Inn, a One-woman Monologue #pitch
 a monologue
 
 dog's death more tragic than human's #news 
@@ -169,7 +170,7 @@ meeting notes from the burger king kid's vote to unionize
 biblical allusions made cool
 made modern
 a magicians guide to biblical illusions
-A Magician's Gu#pitch
+A Magician's Guide to Biblical Illusions #pitch
 for my next biblical illusion i'm going to make jesus disappear
 
 i'm dwayne the rock johnson and yes, i ahve a kidney stone
