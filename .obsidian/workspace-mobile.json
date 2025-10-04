@@ -83,12 +83,22 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Drafts/Rejected Rodney Dangerfield Jokes - 2nd Draft.md",
+                "file": "Headlines/Headlines_9E-25.md",
                 "mode": "source",
-                "source": false
+                "source": false,
+                "backlinks": true,
+                "backlinkOpts": {
+                  "collapseAll": false,
+                  "extraContext": false,
+                  "sortOrder": "alphabetical",
+                  "showSearch": false,
+                  "searchQuery": "",
+                  "backlinkCollapsed": false,
+                  "unlinkedCollapsed": true
+                }
               },
               "icon": "lucide-file",
-              "title": "Rejected Rodney Dangerfield Jokes - 2nd Draft"
+              "title": "Headlines_9E-25"
             }
           }
         ],
@@ -169,7 +179,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Drafts/Rejected Rodney Dangerfield Jokes - 2nd Draft.md",
+            "file": "Headlines/Headlines_9E-25.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -225,9 +235,11 @@
   },
   "active": "14f52ccaceec8dd0",
   "lastOpenFiles": [
+    "Beat Bin/Riddles Three.md",
+    "Drafts/Star Trek & Star Wars.md",
+    "Drafts/Rejected Rodney Dangerfield Jokes - 2nd Draft.md",
     "i wish ii could go back and tell mislead it gets dumbed.md",
     "Drafts/Rodney Second Draft.md",
-    "Drafts/Rejected Rodney Dangerfield Jokes - 2nd Draft.md",
     "Drafts/Rodney Draft 1.md",
     "rodney draft 2.md",
     "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
@@ -254,8 +266,6 @@
     "Dikkers/Questions 2.md",
     "Dikkers/Funny in a Flash 2.md",
     "Potential Concepts.md",
-    "Jokes.md",
-    "Headlines/Highlights.md",
     "zArchive/Headline Archive/Challenge",
     "zArchive/Headline Archive",
     "zArchive",
