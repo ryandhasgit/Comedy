@@ -395,5 +395,25 @@ you can extra your jokes and beats and make a shorter piece 500 words and it wou
 
 ## Piece Review 2
 
+Pitbull Marianne's
+
+Break from para into something else
+went from 3rd person to dialogue or sketch
+use your pacing 
+
+concept is amusing but not exploited as well as it could have been
+a lot going on, too complicated
+trying to save some of the info
+he's confused by timeline. she starts with present, goes back in time (feels like flash back) but we want ot get into the wacky antics when we get this pitull into the house
+then we stayed there and he didn't undersatnd the peewee's gma needing a caretaker
+there's too much logic in why they got it
+the humor is we have pitbull owned by dominatrix
+itbull shoudl be torturing them in sexual ways (lmao)
+didn't get there until the very end
+you intuitively knew that's what you needed to do
+didn't get there right away
+get there at the top
+
+we need to add scenarios
 # My Piece
 
