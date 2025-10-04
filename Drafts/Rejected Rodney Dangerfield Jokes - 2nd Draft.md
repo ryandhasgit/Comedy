@@ -1,3 +1,4 @@
+by Ryan David
 
 My wife, I tell ya. She and I never have sex. The other day I wanted to do foreplay. She said, you're lucky to be getting one-play!
 
