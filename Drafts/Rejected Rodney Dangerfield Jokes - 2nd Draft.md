@@ -24,6 +24,6 @@ Listen to this. Once, in the dead of night, I took a taxi up the pacific coast h
 
 Still, better than letting my wife drive!
 
-Boy, this goldfish business is no joke. I might go belly up myself. Whatcha laughing for, Doc? I'm serious. Ain't you supposed to be pumping my stomach, anyway? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. But I guess I'm a lucky, 'cause at the end I can ask Death, "What took ya so long?" He was probably banging my wife! 
+But this goldfish business is no joke. I might go belly up myself. Whatcha laughing for, Doc? I'm serious. Ain't you supposed to be pumping my stomach, anyway? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. But I guess I'm a lucky, 'cause at the end I can ask Death, "What took ya so long?" He was probably banging my wife! 
 
 You guys have been great, but I've got a coma to get to!
