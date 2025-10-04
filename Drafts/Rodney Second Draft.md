@@ -3,7 +3,7 @@ My wife, I tell ya. She and I never have sex. The other day I wanted to do forep
 
 I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds like there’s no E? Just R-E-S-P-C-T? That’s the kind of respect I get. I tell ya.
 
-My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it's any man but me, and she threatened to drive off a cliff. How 'bout that? The first promise I thought she'd actually keep!
+My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it's any man but me, and she threatened to drive us off a cliff. How 'bout that? The first promise I thought she'd actually keep!
 
 I got no sex life. Even my dog won’t kiss me. I tell ya, he's always licking his balls, but I guess mine ain't good enough for him. Anybody? Anybody?
 
