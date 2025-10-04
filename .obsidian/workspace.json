@@ -11,10 +11,12 @@
             "id": "a42003551d3fe8f2",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
-              "icon": "lucide-file",
-              "title": "New tab"
+              "type": "image",
+              "state": {
+                "file": "IMG_4585.png"
+              },
+              "icon": "lucide-image",
+              "title": "IMG_4585"
             }
           }
         ]
@@ -168,6 +170,9 @@
   },
   "active": "a42003551d3fe8f2",
   "lastOpenFiles": [
+    "IMG_4586.png",
+    "IMG_4587.png",
+    "IMG_4581.png",
     "Drafts/Rejected Rodney Dangerfield Jokes - 2nd Draft.md",
     "Headlines/Headlines_9E-25.md",
     "Untitled.md",
@@ -181,10 +186,7 @@
     "Dikkers/Feedback live.md",
     "Clippings/Texts You Should Send Me After We Hang Out.md",
     "Clippings/More Structures for Short Humor—So Many More.md",
-    "IMG_4581.png",
     "IMG_4585.png",
-    "IMG_4586.png",
-    "IMG_4587.png",
     "in my day kids fucked a sock or blow up doll instead of stuffing their dick  in tben motherboard and fucking chatgly waifu.md",
     "IMG_4587 1.png",
     "Untitled 1.md",
@@ -201,7 +203,6 @@
     "well.md",
     "Headlines/Challenge List.md",
     "Clippings",
-    "Beat Bin/Ten Irritating Habits of the Most Successful People You Know.md",
     "zArchive/Headline Archive/Challenge",
     "zArchive/Headline Archive",
     "zArchive",
