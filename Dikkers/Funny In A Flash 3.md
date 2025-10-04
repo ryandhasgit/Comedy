@@ -1,5 +1,7 @@
 ## Intro
 
+No rules in comedy: guidelines and help
+
 ## Mistake 18
 
 
@@ -16,6 +18,9 @@
 
 
 ## Questions
+
+
+## Piece Review
 
 
 ## My Piece
