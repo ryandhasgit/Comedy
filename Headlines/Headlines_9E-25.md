@@ -80,3 +80,9 @@ a guide to middle-management vernacular
 introducing triple speak #topical`
 
 the double monacle
+
+Top ten numbers, ranked descending and by primeness
+
+The harlem globetrotters are going extinct because of climate change
+
+Not a lot of globe trotting in this glo
