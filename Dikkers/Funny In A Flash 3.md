@@ -38,12 +38,22 @@ he has collected cliches and there is a living, breathing doc called "big ass cl
 329 cliches so far, ongoing
 you can add a comment to that post
 look to see if you are using them 
+this is all in facebook group
+howtowritefunny.com/list
 
+#FIX: avoid cliches
+strunken white says: avoid cliches like the play (lol) #homework #people
 
+# Mistake 19: Speaking in Generalities 
+often in on the nose or convo style humor writing, you hear general feelings and thoughts on things; this doesn't work
+general is ok for subtexdt, but for written word, you need to zoom in #takeaway 
 
+if we zoom in closer from earth to madagascar, mouse lemur in a gogurt cup (visual)
+this would make a fun punchline for a joke or joke beat in a piece #examples 
 
-# Mistake 19
+unique specific descriptions make the best punchlines #quote 
 
+#FIX: Be Specific
 
 # Mistake 20
 
@@ -56,7 +66,8 @@ look to see if you are using them
 
 ## Questions
 
-
+q: how to avoid cliches? 
+a: google or check list
 ## Piece Review
 
 
