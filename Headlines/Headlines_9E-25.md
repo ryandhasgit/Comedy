@@ -29,7 +29,7 @@ job listing
 
 job listing for batman's new sidekick #rework #candidate 
 Job Listing for Batman's New Sidekick #pitch 
-to be
+(lava resistance not required by preferred)
 
 the batman superstan crossover we've all been waiting for
 
