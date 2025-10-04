@@ -348,5 +348,31 @@ so that's where he's at
 
 # Piece Review
 
-He chose pieces he l
+He chose pieces he liked to present today
+
+First is from Sue:
+bernie sanders embraces capitalism after powerball win
+
+famous mittens picture
+
+hes ays: never put disclaimer in there; precious real estate. get right to jokes
+
+two paras in, it's not executing on his expectations of what it would be
+woudl he change his tune, be less progressive
+but we get mired in the winds
+and not getting a clear sense of what's happening with him
+
+scotts' confused by the ken star accountant thing
+seems like we're off on a new track
+shoudl be about bernie winning lottery
+
+when you are doing news parody story
+you need to justify how we know these things
+the best news stories don't have all the facts and know what happened #takeaway 
+"according to one insider"
+she describes it as if we're right here, and it destroys the vissiuclitude of the news parody
+
+we shoudln't bring in other celebs, distracting from our track (bernie)
+
+
 # My Piece
