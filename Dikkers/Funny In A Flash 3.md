@@ -313,12 +313,40 @@ the reason we have humor in dark times is to help us cope with the dark times
 we need it and we want it and you jsut have to keep searching #quote 
 
 q: are peopel concenred with ai stealing work?
-a: i'm not. they have my books and know who i am. nobody will write like me. ai is nowhere close to that yet, so not worried about it. and he dare says 
+a: i'm not. they have my books and know who i am. nobody will write like me. ai is nowhere close to that yet, so not worried about it. and he dare says nor should you be
+
+readers want humans sharing human ideas, not robot sharing robot ideas
+not to say ai videos aren't narrative
+when there is new tech, people are scared old tech will die
+doesn't work that way
+old tech is still around
+there's a million examples
+
+when piano was invented they said nobody will sing anymore, machine can play music
+harp, then organ, then synth, etc
+#examples
+
+when you put something out there, there's a timestmap, and when you're first, they see, tha tmattesr, you own copyright
+
+q: what do onion writers use to get a handle on what's current?
+a: everyon ehas their own sources. scott mixes it up. in the day he used to go to the nyt, cnn, in middle, then huffpost, dmoecracy now, young turks on left, fox news, newsmax, teh drudge report, and you get a broad feeling of what people are talking about, big 24 hour stories everyone knows about 
+make sure it's a story everyone has heard #takeaway 
+you don't want a take on something too obscure. it wont;' land. peoel won't get it if they don't know what it's about
+
+scott doens't like fallon
+says hes' toothless
+"claims to go after both sides"
+but he is apoliticla
+he is beloved and popular for that reason
+come a time when you must pick a side
+and he doesn't think we're there yet
+so that's where he's at
+
 
 
 ---
 
 # Piece Review
 
-
+He chose pieces he l
 # My Piece
