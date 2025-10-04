@@ -99,11 +99,16 @@ one time, late at night, i boarded a taxi going down the pacific coast highway. 
 a struggle ensued and things went black. when i came to it was just us, no taxi, no road, just two 
 a struggle ensued and things went black. when i came to, the taxi had veered into a tree, but there was nobody, no trail of blood, no signs of life, almsot as if the car had driven itself, as if there was no driver, no fight. i spent weeks looking through the papers, obituaries, listening to police radios--anything to indicate he was real. to this day i don't know if he was a figment of my imagination or his son, Jefe, woke the next day without a father.
 
-listen to this. once, late at night, i took a taxi down the pacific coast highway and told the driver to run the meter ‘til the wheels fall off. along the way i cracked a joke, said “how’s my passenger-ing?” but this fella, he didn’t even flinch. no respect. it ticked me off, i tell ya. there's a stretch of road where emptiness is illuminated solely by moonlight endlessly in all directions. that summabitch never saw it coming, my gun, pressed nice and tight into his jugular. i said, "what's the matter pal, never had a gun in your neck? never felt the fear of god strike deep into your heart?" but he wasn't having it. a struggle ensued and next thing i know, there was nothing but metal and glass and blood. no driver, no trail, nothing, as if the car drove itself into a tree. but why was i in the backseat? for months i pored over papers and obits and police radios seeking some sign that it was real, or that Jefe, his infant son, awoke the next day, fatherless. but it'd rather ride with him again than let my wife take the wheel!
+listen to this. once, late at night, i took a taxi down the pacific coast highway and told the driver to run the meter ‘til the wheels fall off. along the way i cracked a joke, said “how’s my passenger-ing?” but this fella, he didn’t even flinch. no respect. oh boy did it it ticked me off, i tell ya. there's a stretch of road where emptiness is illuminated solely by moonlight, endlessly in all directions. that summabitch never saw it coming, my gun, pressed nice and tight into his jugular. i screamed, "what's the matter pal, never had a gun in your neck? never felt the fear of god strike deep into your heart?" but he wasn't having it. a struggle ensued and next thing i know, there was nothing but metal and glass and blood. no driver, no trail, as if the car drove itself into a tree. but why was i in the backseat? for months to no avail i pored over papers and obits and police scanners for some sign it was real and whether Jefe, his infant son, awoke that next day fatherless. but it'd rather ride with him again than let my wife take the wheel!
+
+once, in the dead of night, i took a taxi up the pacific coast highway, headed anywhere but home. along the way i cracked a joke, said “how’s my passenger-ing?” but this fella didn’t flinch. absolutely no respect. maybe it was the booze or his look of cold indifference, but boy, did it tick me off. well, there's a stretch of road where emptiness is illuminated endlessly in all directions solely by moonlight. that summabitch never saw it coming, my gun, pressed nice and tight into his jugular. i screamed, "what's the matter pal, cat got your tongue? you fuckin’ my wife too?” a struggle ensued and next thing i know there was nothing but metal and glass and blood. no driver, no trail—as if the car drove itself into a ditch. but why was i in the backseat? for months, to no avail i pored over the papers and obits and police scanners for a sign it wasn’t a figment of my imagination—whether Jefe, his infant son, awoke that next day fatherless. but hey, i’d rather ride with him again than let my wife take the wheel!
+
+ stretch where emptiness is illuminated endlessly by lonely moonlight. I joked to the driver, “How’s my passenger-ing?” but this fella didn’t flinch. Maybe it was the booze or his contemptible mug, but boy did that disrespect tick me off. The sumbitch never saw it coming, my gun, pressed nice and tig
 
 "you fuck my wife too?"
 cause i tried to sell her to a warlord
 oh boy, this guy
+snickered up 
 
 if it'd been my wife driving we'd be dead!
 
@@ -127,19 +132,29 @@ i tell ya, my wife got her license the other day. if you ain't a religious main 
 
 i tell ya, she's such a bad driver, my wife. we were driving down the long island expressway. i told her, hey honey, can you keep your eyes on the road? just pretend it's any man but me. oh boy, she did not like that, cause the next thing i know we're in the dirt, airbag deployed, car on its side. except my airbag didn't fire cause someone stuck a bobby pin in it, the same kid my wife wears in her hair. i said, honey, ain't that something, you didn't lose it after all. i said, aint' that something, you backstabbing two-timing harlot. i ain't never buying you any beauty prodcuts again. what would've happened if i bought you a curling iron , would that be in me isntead?  
 
+I tell ya, my wife's a terrible driver. Can't keep her eyes on the road. So I told her to  pretend it was any man but me, and she threatened to kill me! I said, "Honey, that's the first promise of yours I actually believe!"
+
 get this, my wife. one day she tells me she's gonna stab my eyes out if i don't stop oggling these other women. i say, honey, that's progress! i'm only used to getting that treatment in the back!
 
 my wife, she's a terrible driver. 
 
 he said your mother? $20
 
- i pried it outta her mouth 
+i pried it outta her mouth 
 
 they pried it out of her skull in the holocaust. 
 
 i tell ya the truth, my wife and i have never been about 
 
 ya know
+
+
+Still better than letting my wife drive!  
+
+But this goldfish business is no joke. I might go belly up myself. What're you laughing for, Doc? Ain't you supposed to be pumping my stomach? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. I’d love to sign your liability wavers, but my wife’s the power of attorney. How you think she got the house in the divorce? I mean, I guess I'm a lucky guy, 'cause at the end I can look death in the face and ask, "What took ya so long?" I tell ya. He was probably banging my wife!
+
+You guys have been great, but I've got a coma to get to!
+
 
 --------
 

@@ -11,10 +11,14 @@
             "id": "a6349f5b7d758bfe",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
+              "type": "markdown",
+              "state": {
+                "file": "Untitled.md",
+                "mode": "source",
+                "source": false
+              },
               "icon": "lucide-file",
-              "title": "New tab"
+              "title": "Untitled"
             }
           }
         ]
@@ -168,6 +172,8 @@
   },
   "active": "a6349f5b7d758bfe",
   "lastOpenFiles": [
+    "Untitled.md",
+    "Drafts/Rejected Rodney Dangerfield Jokes - 2nd Draft.md",
     "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
     "Drafts/Rodney Draft 1.md",
     "Beat Bin/ChatGPT Therapist Beats.md",
@@ -200,8 +206,6 @@
     "Headlines/Challenge List.md",
     "Clippings",
     "Beat Bin/Ten Irritating Habits of the Most Successful People You Know.md",
-    "Dikkers/Questions 2.md",
-    "Dikkers/Funny in a Flash 2.md",
     "zArchive/Headline Archive/Challenge",
     "zArchive/Headline Archive",
     "zArchive",
