@@ -270,6 +270,30 @@ if you're a team of one trying to shut it out and be as yourself as you can, tah
 so much that succeeds is what's not derivative
 you can assume you are being unduly influenced by what your'e consuming, and yo'rue well served to be extra diligent that you are being you and tapping into something that's uniquely you when you are doing your comedy #takeaway 
 
+q: marianne, thoughts on medium?
+did for years, changed to alg, she stopped self-publishing
+do you have any thoughts on what's happenign with them, is it a good place?
+seems to be wallowing when it used to be read
+
+a: they're all worth it. good idea to keep your finger to wind and see what new platofrms there are and be an early adopter #takeaway #major 
+he has stuff on medium that did well in the past, but it doesn't do as well  now
+indication that something is awry
+think about being liek water: go anywhere and everywhere, and you will find the places you will get the most traction
+
+marianne: if it's on medium it's published and cna't take it anwyehre?
+a: if it's in slackjaw you can't get it in new yorker
+if in new yorker if you published anywehre it's published
+
+[personal note] the stuff that doesn't vote well but i like writing i should write and publish on my own #homework 
+
+scott hired someone at the onion because they were passing out pamphlets
+
+q: someone said something about fallon
+a: he said something recently concerning
+stewart and another late show person (maybe fallon)
+they came out and acted like they were supporting dear leader
+stewart had big gold bg on daily show
+one joke they both did
 
 
 ---
