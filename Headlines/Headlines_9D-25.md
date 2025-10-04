@@ -48,7 +48,7 @@ concerning: mother-in-law approves #news
 
 using ai to reinvent the wheel
 
-i need a staycation from this staycation
+I Need a Staycation From This Staycation #candidate 
 
 new left handed scissors is riht handed scissors
 
