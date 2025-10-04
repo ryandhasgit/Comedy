@@ -206,6 +206,24 @@ a: and then biff said he isn't doing that well (gen descrip of health)
 
 he felt as if his face was soaking in walrus vomit all morning (specific description)
 
+q: marguerite says, in cliches list; i wrote a piece with a line and submitted and 2 days later it was SNL and her line was in that monologue. i already submitted and the "i don't have any kids... that i know of"
+
+a: but this happens, someone comes up with idea and you also say it
+just look iit up
+
+the onion used to wait on the simpsons to finish airing on sunday before posting beaucse usually they'd have a joke on it
+
+q pt 2: rant about dollar tree raising prices
+sometimes its letter to ceo, etc
+she didn't know that other peopel were doing it
+all these youtube videos about this
+she didn't look at those and have had success with piece
+she sumitted and it was done by another actor
+
+she is wondering if her specific take on this, it's about punching up, 
+
+
+---
 
 # Piece Review
 
