@@ -246,6 +246,31 @@ what about our voice
 it was the act of fcc chairman
 a stooge , a bureaucrat 
 
+scott finds it unsettling and horrible and the way things are in iran
+if you do political satire in iran or saudi arabia you are arrested or decapitated
+
+you have to decide how bold you watn to be
+history looks fondly on the bold
+charlie chaplains the great dictator is a masterpiece
+came out early and ridicules hitler 
+patsies for hitler didn' age well #homework #people 
+
+q: dhaval likes advice about topics you want to write, but don't see contet to influence
+still happens when he tires to write or sees content
+he has free mateiral at home, lots
+at some piont you get used to a style, so similar to a comedian you watch, or late night show host you watch
+how d you diverge form that and find you ridentity?
+
+a: going over this in TV pilot course overlapping this one
+it's importnat to be aware of what's happening but not immerse yourself in it so much you are starting to sound like it #quote #takeaway 
+it's important to be unique and have your own voice
+have a feedback group, comedy group that has its own way of speaking and doing comedy
+if you're a team of one trying to shut it out and be as yourself as you can, taht would be the best way #takeaway 
+
+so much that succeeds is what's not derivative
+you can assume you are being unduly influenced by what your'e consuming, and yo'rue well served to be extra diligent that you are being you and tapping into something that's uniquely you when you are doing your comedy #takeaway 
+
+
 
 ---
 
