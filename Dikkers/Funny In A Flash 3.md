@@ -295,6 +295,26 @@ they came out and acted like they were supporting dear leader
 stewart had big gold bg on daily show
 one joke they both did
 
+q: sarah says she's been struggling to write because of how overwhelmed she is by current events
+a: you don't have to write about current events; if you do, you can try and tap into principle of tapping into your deep feelings (anger about what's going on)
+good satire is pointing out what's wrong with the world and wanting them to be better #quote 
+filter these through funny filters, and it can be cathartic
+he asks what is causing the overwhelm?
+a: i'm just consuming too much media
+
+shes' worried about out of control passion and anger
+and hes says use funny filters to carefully address
+feels flat but you can feel desperation through the writer and it coems through powerfully #takeaway 
+this takes practice
+keep working on it
+shoudl be fun, try to make it fun
+
+the reason we have humor in dark times is to help us cope with the dark times
+we need it and we want it and you jsut have to keep searching #quote 
+
+q: are peopel concenred with ai stealing work?
+a: i'm not. they have my books and know who i am. nobody will write like me. ai is nowhere close to that yet, so not worried about it. and he dare says 
+
 
 ---
 
