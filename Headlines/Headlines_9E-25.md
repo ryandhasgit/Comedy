@@ -27,6 +27,7 @@ a superhero sidekick's resume
 job listing
 
 job listing for batman's new sidekick #rework #candidate 
+Job Listing for Batman's New Sidekick #pitch 
 to be
 
 the batman superstan crossover we've all been waiting for
@@ -37,6 +38,7 @@ long-running US democracy cancelled after 249 seasons #news
 
 testimonials for movie trailers
 movie trailer testimonials for bad films
+Fake Testimonials for Bad Movies #pitch 
 
 life coach wearing whistle for some reason #news 
 
@@ -64,6 +66,7 @@ they would say: give yourself up, you're surrounded
 
 Foot-long footlocker introduces five dollar foot-long
 oscar meyerwiner introduces
+Oscar Mayer Introduces Five-Dollar Footlong Wiener #pitch
 
 government shutdown: 
 congress to attempt to turn on and off government to fix 
