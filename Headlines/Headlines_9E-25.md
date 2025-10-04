@@ -21,6 +21,7 @@ notes from hell's kitchen health inspection #rework
 
 darth vaders schedule as set by his secretary 
 cover letter to be darth v's secretary
+Gru's Schedule as Set By His Secretary #rework 
 
 a supervillain resume
 a superhero sidekick's resume
@@ -90,8 +91,8 @@ The harlem globetrotters are going extinct because of climate change
 
 Not a lot of globe trotting in this globetrotters game
 
-inside the lockeroom of the globetrotters only ever loss to the generals
+inside the lockeroom of the globetrotters only loss to the generals
 
 an oral history of thriller
 
-flag earth trotters 
+flat earth trotters 

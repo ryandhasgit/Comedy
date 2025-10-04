@@ -168,7 +168,8 @@ meeting notes from the burger king kid's vote to unionize
 
 biblical allusions made cool
 made modern
-a magicians guide to biblical illusions #candidate 
+a magicians guide to biblical illusions
+A Magician's Gu#pitch
 for my next biblical illusion i'm going to make jesus disappear
 
 i'm dwayne the rock johnson and yes, i ahve a kidney stone
