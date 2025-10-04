@@ -23,7 +23,16 @@
         "Alt",
         "Shift"
       ],
-      "key": "F"
+      "key": "K"
+    }
+  ],
+  "editor:unfold-all": [
+    {
+      "modifiers": [
+        "Alt",
+        "Shift"
+      ],
+      "key": "L"
     }
   ]
 }
