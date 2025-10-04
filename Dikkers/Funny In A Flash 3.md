@@ -43,7 +43,7 @@ howtowritefunny.com/list
 
 #FIX: avoid cliches
 strunken white says: avoid cliches like the play (lol) #homework #people
-
+you can use cliches if you make fun of them #takeaway
 # Mistake 19: Speaking in Generalities 
 often in on the nose or convo style humor writing, you hear general feelings and thoughts on things; this doesn't work
 general is ok for subtexdt, but for written word, you need to zoom in #takeaway 
@@ -55,7 +55,35 @@ unique specific descriptions make the best punchlines #quote
 
 #FIX: Be Specific
 
-# Mistake 20
+# Mistake 20: Limiting your audience
+something far too many people do
+we think of new yorker, mcsweeneys, etc as only outlets for short humor
+points in case, whiskey journey, slackjaw #homework 
+they're not the only places you can write
+you can write anywhere, any social media platform
+can start your own blog
+
+megan amram started on twitter and then moved that into tv writing
+wrote a book #homework 
+she didn't go traidtional route and tried to get published
+she just started writing and put it on a compouter
+
+this is how you should think aout your dist channel #takeaway #quote 
+this is the world and you can put it out however you want
+no gates
+
+connor o'malley 
+soctt found him on youtbue with like 100 followers
+and scott thought he was so funny he invited him to the onion office to meet him and see if they could work together
+
+scott found out he does youtube and that writes short pieces and he posts them as parodies of reviews
+puts them on yelp and he would sign them #homework 
+he was doing short pose writing and putting it on amazon review! #major 
+great way to get writing out there, and got him discovered, and he got hired tow rite late night with seth meyers
+
+very exciting to people in the industry
+people so efusively creative that the
+#exmaple
 
 
 # Mistake 21
@@ -68,6 +96,13 @@ unique specific descriptions make the best punchlines #quote
 
 q: how to avoid cliches? 
 a: google or check list
+
+q: examples of generalities
+a: and then biff said he isn't doing that well (gen descrip of health)
+
+he felt as if his face was soaking in walrus vomit all morning (specific description)
+
+
 ## Piece Review
 
 
