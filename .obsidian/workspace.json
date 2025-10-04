@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Headlines/Headlines_10A-25.md",
+                "file": "Beat Bin/Browser tab beats.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Headlines_10A-25"
+              "title": "Browser tab beats"
             }
           }
         ]
@@ -172,8 +172,8 @@
   },
   "active": "a42003551d3fe8f2",
   "lastOpenFiles": [
-    "Beat Bin/Browser tab beats.md",
     "Headlines/Headlines_10A-25.md",
+    "Beat Bin/Browser tab beats.md",
     "zArchive/Headline Archive/Challenge/Challenge Pitched w votes.md",
     "Headlines/Challenge List.md",
     "Headlines/Highlights.md",
