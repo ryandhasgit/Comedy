@@ -414,6 +414,15 @@ you intuitively knew that's what you needed to do
 didn't get there right away
 get there at the top
 
-we need to add scenarios
+we need to add scenarios that are unique and specific
+would be funnier if couple is lacking awareness of what's funny
+if eveyrone knowshwat's going on theres no stirahgt
+
 # My Piece
+
+doesn't headline make you star to imagine what the piece is?
+tha'ts hwat makes a good concept
+you hear it and think i can't wait to see what these are, i think it's funny
+it's agood example to see
+
 
