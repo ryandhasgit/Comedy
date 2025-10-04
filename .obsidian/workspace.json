@@ -4,21 +4,17 @@
     "type": "split",
     "children": [
       {
-        "id": "2a25d3fe3afd6aec",
+        "id": "a135568a7c57444e",
         "type": "tabs",
         "children": [
           {
-            "id": "a6349f5b7d758bfe",
+            "id": "a42003551d3fe8f2",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Drafts/Rejected Rodney Dangerfield Jokes - 2nd Draft.md",
-                "mode": "source",
-                "source": false
-              },
+              "type": "empty",
+              "state": {},
               "icon": "lucide-file",
-              "title": "Rejected Rodney Dangerfield Jokes - 2nd Draft"
+              "title": "New tab"
             }
           }
         ]
@@ -170,16 +166,16 @@
       "github-sync:Sync with Remote": false
     }
   },
-  "active": "a6349f5b7d758bfe",
+  "active": "a42003551d3fe8f2",
   "lastOpenFiles": [
-    "Untitled.md",
     "Drafts/Rejected Rodney Dangerfield Jokes - 2nd Draft.md",
+    "Headlines/Headlines_9E-25.md",
+    "Untitled.md",
     "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
     "Drafts/Rodney Draft 1.md",
     "Beat Bin/ChatGPT Therapist Beats.md",
     "Drafts/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
     "Beat Bin/My Five Year Plan For Getting Out Of This Well.md",
-    "Headlines/Headlines_9E-25.md",
     "Misc/symphony.jpg",
     "Headlines/Highlights.md",
     "Dikkers/Feedback live.md",
