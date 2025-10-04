@@ -67,8 +67,9 @@ they would say: give yourself up, you're surrounded
 
 Foot-long footlocker introduces five dollar foot-long
 oscar meyerwiner introduces
-Oscar Mayer Introduces Five-Dollar Footlong Wiener #pitch #news 
+Oscar Mayer Introduces Five-Dollar Footlong Wiener #news 
 Introducing, the Oscar Mayer Five-Dollar Footlong Wiener
+Pitch Meeting for the Oscar Mayer Five-Dollar Footlong #pitch
 
 government shutdown: 
 congress to attempt to turn on and off government to fix 
