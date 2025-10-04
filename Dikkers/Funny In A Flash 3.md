@@ -147,10 +147,55 @@ being timely is a way to break through the no-viewer jail #quote #takeaway
 will get passed around more than what's evergreen
 
 q: corey pajka struggles with timely humor and news cycle moves so quickly within 48 hours it's stale
-a: it's brutal
-# Mistake 22
+a: it's brutal. at onion they only responded to what they were thinking about, they publsihed what htey thought would be in the news
+2-3 week lead time
 
+then in 2012 they decidedt o respond to 24 hour news cycle
+they redid whole system to meet in morning, come up with ideas, write in afternoon, get publisehd
+when you have staff and time you cand o that #process 
 
+andy borowitz  did topiocal humor and post it before anyone else #people
+
+you just have to speed it up #quote 
+
+it's a tough racket, a real competitive game, but you can really hit sometimes with it
+
+# Mistake 22: Playing it safe
+there's a fine line
+if you're too milquetoast, it's toothless satrie and nobody will like it
+noone passes it around
+no one is waiting for the next juicy, appropriate joke
+you need to ruffle some feathers
+
+one way to do that is to appear to afflict hte afflicted
+appearing to comfort the comfy but not really doing it
+doing it through some funny filter like irony or misplaced focus #takeaway 
+
+or be really petty; pick something neither comfy or afflicted and go after it HARD #takeaway 
+
+or if you watn to go afte rpowerful hard, afflict the comfy hard, ruffling feathers
+the way that south park has gone after trump
+it gets attention
+trump sees that and can't hel pbut comment
+everyohne commetns and passes around
+
+nobody is going as hard as south park #quote 
+they're still in teh safe terrirotry 
+
+they tried to make fun of trasn and missed the boat
+they're not aces but they're doing it right with trump
+
+#FIX: Ruffle some feathers
+see if you can't get yourself in trouble
+comedy is funniest and humor writing isf unniest when it seems like you're getting away with something you shouldn't be allwoed to get away with #quote 
+a good piece has that feeling often
+
+# Review
+18 - Avoid Cliches
+19 - Be specific (as sepcific as you can, esp in punchlines)
+20 - make your humor flow like water (get it wehrever you can)
+21 - comfort the afflited and afflict hte ocmfortable (a guiding princ for all the best humor writing)
+22 - ruffle feathers (on top of 21)
 # Questions
 
 q: how to avoid cliches? 
