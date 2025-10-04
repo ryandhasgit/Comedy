@@ -11,12 +11,14 @@
             "id": "a42003551d3fe8f2",
             "type": "leaf",
             "state": {
-              "type": "image",
+              "type": "markdown",
               "state": {
-                "file": "IMG_4585.png"
+                "file": "Headlines/Headlines_9E-25.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-image",
-              "title": "IMG_4585"
+              "icon": "lucide-file",
+              "title": "Headlines_9E-25"
             }
           }
         ]
@@ -170,9 +172,11 @@
   },
   "active": "a42003551d3fe8f2",
   "lastOpenFiles": [
+    "IMG_4718.png",
+    "IMG_4581.png",
+    "IMG_4585.png",
     "IMG_4586.png",
     "IMG_4587.png",
-    "IMG_4581.png",
     "Drafts/Rejected Rodney Dangerfield Jokes - 2nd Draft.md",
     "Headlines/Headlines_9E-25.md",
     "Untitled.md",
@@ -186,7 +190,6 @@
     "Dikkers/Feedback live.md",
     "Clippings/Texts You Should Send Me After We Hang Out.md",
     "Clippings/More Structures for Short Humor—So Many More.md",
-    "IMG_4585.png",
     "in my day kids fucked a sock or blow up doll instead of stuffing their dick  in tben motherboard and fucking chatgly waifu.md",
     "IMG_4587 1.png",
     "Untitled 1.md",
