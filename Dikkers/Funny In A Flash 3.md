@@ -374,5 +374,26 @@ she describes it as if we're right here, and it destroys the vissiuclitude of th
 
 we shoudln't bring in other celebs, distracting from our track (bernie)
 
+we're too far into the piece to see the joke, which is he's abandoning democratic socialism
+
+into the paragraphs, it is too dense
+not enough pace for the joke beats
+you need enough straight stuff so that when you hit a joke it hits #takeaway 
+right now there's a barrage and it's blurry
+and it's like a monologue
+if it's new, you should hear editorial voice
+and it's really long, almsot 3 pages
+have to stop for time and length
+
+summary: joke at the top
+bernie is insufferable billionaire who is changed by money
+laser focus on this, height the contrast
+and put enough material in between
+so when we do talk about how he's behaving and hwat's he doing, it has change to hit #takeaway 
+
+you can extra your jokes and beats and make a shorter piece 500 words and it would work great
+
+## Piece Review 2
 
 # My Piece
+
