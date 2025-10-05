@@ -140,7 +140,15 @@ ellie kemper
 chris kelly
 #takeaway 
 
+
 you should do your two-woman show in LA, more traction than Utah
+whoopie got her start that way
+it should be dramatically structured with an arc
+people usually do lots of characters, light story stuf
+can be sketch oriented but should be connective tissue
+anything with feature length should have strcuture
+could be loose
+you could look at youtube for these formats (two woman show)
 
 ## My Notes
 one form of comedy can be a vehicle to success elsewhere
