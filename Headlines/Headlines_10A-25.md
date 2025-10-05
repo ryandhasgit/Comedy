@@ -37,4 +37,6 @@ recipes for cat food
 recipes for birds
 recipes for life 
 recipes for bombs
-how to make a bomb
+how to make a bomb #rework 
+
+let's see ai replace me cutting my balls with a razor
