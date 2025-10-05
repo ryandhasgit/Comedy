@@ -8,16 +8,6 @@
         "type": "tabs",
         "children": [
           {
-            "id": "461fd3b1e002dc2e",
-            "type": "leaf",
-            "state": {
-              "type": "empty",
-              "state": {},
-              "icon": "lucide-file",
-              "title": "New tab"
-            }
-          },
-          {
             "id": "e324e6ed3f4fa801",
             "type": "leaf",
             "state": {
@@ -247,8 +237,9 @@
       }
     ]
   },
-  "active": "6e90a29292e00b07",
+  "active": "eeca035a49b6f0a7",
   "lastOpenFiles": [
+    "Untitled.md",
     "Clippings/More Structures for Short Humor—So Many More.md",
     "Dikkers/Accountability/Oct Accountability.md",
     "Dikkers/Accountability/Oct -Sept Retro.md",
