@@ -159,6 +159,8 @@ my wife, i tell ya. we never have sex. every time i try to make a move, the cops
 
 my wife, i tell ya, we never have sex. 
 
+my wife, i tell ya, she gives me no respect. i said, hey hun, how about i take ya out tonight? she said, with waht money? 
+
 
 --------
 
