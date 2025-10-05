@@ -39,3 +39,7 @@ in top 0.1%
 
 ## Lu Ann
 Trying to post more
+
+Scott advice: he watches most of her videos
+you're talking with volume and energy and passion
+when ou talk in reels, you seem subdued, like nervous and reading
