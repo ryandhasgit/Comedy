@@ -11,14 +11,10 @@
             "id": "461fd3b1e002dc2e",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Dikkers/Accountability/Oct Accountability.md",
-                "mode": "source",
-                "source": false
-              },
+              "type": "empty",
+              "state": {},
               "icon": "lucide-file",
-              "title": "Oct Accountability"
+              "title": "New tab"
             }
           },
           {
@@ -238,8 +234,7 @@
                   "title": "Sept Accountability"
                 }
               }
-            ],
-            "currentTab": 1
+            ]
           }
         ],
         "direction": "vertical",
@@ -252,21 +247,12 @@
       }
     ]
   },
-  "active": "461fd3b1e002dc2e",
+  "active": "6e90a29292e00b07",
   "lastOpenFiles": [
-    "Dikkers/Accountability/Oct -Sept Retro.md",
     "Dikkers/Accountability/Oct Accountability.md",
-    "Untitled 1.md",
-    "Untitled.md",
+    "Dikkers/Accountability/Oct -Sept Retro.md",
     "Dikkers/Accountability/Sept Goals.md",
     "Headlines/Headlines_10A-25.md",
-    "Untitled 8.md",
-    "Untitled 7.md",
-    "Untitled 6.md",
-    "Untitled 5.md",
-    "Untitled 4.md",
-    "Untitled 3.md",
-    "Untitled 2.md",
     "Dikkers/Accountability/Sept Accountability.md",
     "Dikkers/Funny In A Flash/Funny In A Flash 1.md",
     "Dikkers/Funny In A Flash/Feedback live.md",
