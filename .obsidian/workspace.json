@@ -27,15 +27,16 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Dikkers/Accountability/Sept Retro.md",
+                "file": "Dikkers/Accountability/Oct -Sept Retro.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Sept Retro"
+              "title": "Oct -Sept Retro"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -252,10 +253,10 @@
       }
     ]
   },
-  "active": "461fd3b1e002dc2e",
+  "active": "e324e6ed3f4fa801",
   "lastOpenFiles": [
-    "Dikkers/Accountability/Sept Retro.md",
     "Dikkers/Accountability/Oct Accountability.md",
+    "Dikkers/Accountability/Oct -Sept Retro.md",
     "Untitled 8.md",
     "Untitled 7.md",
     "Untitled 6.md",
