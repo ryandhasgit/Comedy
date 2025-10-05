@@ -6,12 +6,19 @@
 - Scott's class on writing mistakes
 - Reworked my process to not focus on same piece for weeks
 	More focused on starting a draft and coming back to it in a week (letting ADHD be my super power)
+	Fending off over-editing 
 	Trying to write fast (getting faster but not there)
 - Submitted 1 piece; goal was 3
 - Writing at least 3-4 times a week 
+- Started improv to cross-poi
 
 ## Oct Goals
 - Pitch 5 headlines to FB group twice a week 
 - Write every day
 - Solicit feedback on my more ripe drafts
-- 
+- Attend writer's room
+- Read more
+- Post more of my content to my Substack and explore other social media
+- Be more strict about over-editing
+- Submit 3 drafts 
+- Get a piece published in Slackjaw, Weekly Humorist, or Points in Case
