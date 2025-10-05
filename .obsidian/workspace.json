@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Drafts/Rodney Draft 2 w notes.md",
+                "file": "Headlines/Headlines_10A-25.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Rodney Draft 2 w notes"
+              "title": "Headlines_10A-25"
             }
           }
         ]
@@ -206,11 +206,48 @@
         "height": 1096,
         "maximize": false,
         "zoom": 0
+      },
+      {
+        "id": "1e34d4bdfdb3ad5a",
+        "type": "window",
+        "children": [
+          {
+            "id": "90705f6b2b3686ab",
+            "type": "tabs",
+            "children": [
+              {
+                "id": "6e90a29292e00b07",
+                "type": "leaf",
+                "state": {
+                  "type": "markdown",
+                  "state": {
+                    "file": "Clippings/More Structures for Short Humor—So Many More.md",
+                    "mode": "source",
+                    "source": false
+                  },
+                  "icon": "lucide-file",
+                  "title": "More Structures for Short Humor—So Many More"
+                }
+              }
+            ]
+          }
+        ],
+        "direction": "vertical",
+        "x": -929,
+        "y": 0,
+        "width": 929,
+        "height": 1080,
+        "maximize": false,
+        "zoom": 0
       }
     ]
   },
   "active": "461fd3b1e002dc2e",
   "lastOpenFiles": [
+    "Clippings/More Structures for Short Humor—So Many More.md",
+    "Headlines/Headlines_10A-25.md",
+    "Funny filters.jpg",
+    "Drafts/Rodney Draft 2 w notes.md",
     "Drafts/Rodney Draft 2.md",
     "Drafts/Rodney Draft 1.md",
     "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
@@ -222,10 +259,8 @@
     "Dikkers/Feedback live.md",
     "Dikkers/Funny In A Flash Preamble.md",
     "Dikkers/Preamble Feedback.md",
-    "Drafts/Rodney Draft 2 w notes.md",
     "Untitled 2.md",
     "Untitled 1.md",
-    "Headlines/Headlines_10A-25.md",
     "Untitled.md",
     "Beat Bin/NBA Sneaker Squeak beats.md",
     "Dikkers/Untitled.base",
@@ -238,10 +273,7 @@
     "terrible promoted posts by influencers.md",
     "Beat Bin/I Stole Your Dumb Identity and You Can Have This Shit Back.md",
     "Beat Bin/ChatGPT Therapist Beats.md",
-    "Drafts/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
-    "Beat Bin/Diaper Hunk.md",
     "Misc/symphony.jpg",
-    "Funny filters.jpg",
     "IMG_3780.jpg",
     "IMG_4581.png",
     "IMG_4585.png",
