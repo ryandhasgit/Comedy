@@ -43,3 +43,10 @@ Trying to post more
 Scott advice: he watches most of her videos
 you're talking with volume and energy and passion
 when ou talk in reels, you seem subdued, like nervous and reading
+thinks if you crack through and talk like you're taking now, huge difference
+
+tat you're doing reserach on trends and topics is great, lean in
+if people are responding ot that, no problem with experimenting #homework 
+love you're looking at the metrics, see how they do, go to where the audeince is
+that's wher eyou'll find the sweet sopt in the venn diagram, what you watn to do, wha taudiences want, etc
+it's personal, how do they feel about you, what do they want from you that's going to be different #takeaway #quote 
