@@ -155,6 +155,10 @@ But this goldfish business is no joke. I might go belly up myself. What're you l
 
 You guys have been great, but I've got a coma to get to!
 
+my wife, i tell ya. we never have sex. every time i try to make a move, the cops come and tell me i'm 50 feet too close.
+
+my wife, i tell ya, we never have sex. 
+
 
 --------
 
