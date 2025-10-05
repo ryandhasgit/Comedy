@@ -50,3 +50,17 @@ if people are responding ot that, no problem with experimenting #homework
 love you're looking at the metrics, see how they do, go to where the audeince is
 that's wher eyou'll find the sweet sopt in the venn diagram, what you watn to do, wha taudiences want, etc
 it's personal, how do they feel about you, what do they want from you that's going to be different #takeaway #quote 
+
+## Katie
+Try new material every time you get on stage
+if something goes well, keep going with that
+bank the hits into these are the jokes you have working pretty well
+showcase or paid gig
+or if you want to put them togethe rand try it and maybe it's a tight five
+you'll languish if you're doing the same set every time
+goal is to get comforable
+
+# Joy
+giving ou manuscripts for beta feedback
+want sto get to the point she did last month
+a month from now on nov 3rd it goes to real editor
