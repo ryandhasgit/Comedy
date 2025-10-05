@@ -34,3 +34,7 @@ a new streaming service that lets you stream other streaming services
 recipes for democracy
 recipes for cats
 recipes for cat food
+recipes for birds
+recipes for life 
+recipes for bombs
+how to make a bomb
