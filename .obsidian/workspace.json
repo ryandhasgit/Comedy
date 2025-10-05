@@ -4,53 +4,24 @@
     "type": "split",
     "children": [
       {
-        "id": "46429130dc795614",
+        "id": "a135568a7c57444e",
         "type": "tabs",
         "children": [
           {
-            "id": "461fd3b1e002dc2e",
+            "id": "a42003551d3fe8f2",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Dikkers/Accountability/Oct Accountability.md",
+                "file": "terrible promoted posts by influencers.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Oct Accountability"
-            }
-          },
-          {
-            "id": "e324e6ed3f4fa801",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Dikkers/Accountability/Oct -Sept Retro.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Oct -Sept Retro"
-            }
-          },
-          {
-            "id": "bd9d222bf8e450ca",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Untitled 1.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Untitled 1"
+              "title": "terrible promoted posts by influencers"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -199,121 +170,53 @@
       "github-sync:Sync with Remote": false
     }
   },
-  "floating": {
-    "id": "3c4e18340fcf1594",
-    "type": "floating",
-    "children": [
-      {
-        "id": "1e34d4bdfdb3ad5a",
-        "type": "window",
-        "children": [
-          {
-            "id": "90705f6b2b3686ab",
-            "type": "tabs",
-            "children": [
-              {
-                "id": "6e90a29292e00b07",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Clippings/More Structures for Short Humor—So Many More.md",
-                    "mode": "source",
-                    "source": false
-                  },
-                  "icon": "lucide-file",
-                  "title": "More Structures for Short Humor—So Many More"
-                }
-              },
-              {
-                "id": "bf51b666c52cd93f",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Dikkers/Accountability/Sept Goals.md",
-                    "mode": "source",
-                    "source": false
-                  },
-                  "icon": "lucide-file",
-                  "title": "Sept Goals"
-                }
-              },
-              {
-                "id": "f4db9c7795ce4252",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Dikkers/Accountability/Sept Accountability.md",
-                    "mode": "source",
-                    "source": false
-                  },
-                  "icon": "lucide-file",
-                  "title": "Sept Accountability"
-                }
-              }
-            ],
-            "currentTab": 1
-          }
-        ],
-        "direction": "vertical",
-        "x": -929,
-        "y": 0,
-        "width": 929,
-        "height": 1080,
-        "maximize": true,
-        "zoom": 0
-      }
-    ]
-  },
-  "active": "e324e6ed3f4fa801",
+  "active": "a42003551d3fe8f2",
   "lastOpenFiles": [
     "Untitled 1.md",
+    "terrible promoted posts by influencers.md",
+    "Dikkers/Accountability/Sept Goals.md",
+    "Untitled.md",
+    "Dikkers/Accountability/Sept Retro.md",
     "Dikkers/Accountability/Oct -Sept Retro.md",
+    "Dikkers/Accountability/Sept Accountability.md",
     "Dikkers/Accountability/Oct Accountability.md",
     "Headlines/Headlines_10A-25.md",
-    "Untitled.md",
-    "Untitled 8.md",
     "Untitled 7.md",
+    "Dikkers/Funny In A Flash/Questions 2.md",
+    "Dikkers/Funny In A Flash/Preamble Feedback.md",
+    "Dikkers/Funny In A Flash/Funny In A Flash Preamble.md",
+    "Dikkers/Funny In A Flash/Funny In A Flash 3.md",
+    "Dikkers/Funny In A Flash/Funny In A Flash 2.md",
+    "Dikkers/Funny In A Flash/Funny In A Flash 1.md",
+    "Dikkers/Funny In A Flash/Flash Canvas.canvas",
+    "Dikkers/Funny In A Flash/Feedback live.md",
+    "Dikkers/Funny In A Flash",
     "Untitled 6.md",
+    "Ideas.md",
+    "Bluesky account.md",
     "Untitled 5.md",
     "Untitled 4.md",
     "Untitled 3.md",
     "Untitled 2.md",
-    "Dikkers/Accountability/Sept Accountability.md",
-    "Dikkers/Accountability/Sept Goals.md",
-    "Dikkers/Funny In A Flash/Funny In A Flash 1.md",
-    "Dikkers/Funny In A Flash/Feedback live.md",
-    "Dikkers/Funny In A Flash",
-    "Bluesky account.md",
-    "Ideas.md",
-    "well.md",
-    "terrible promoted posts by influencers.md",
-    "Potential Concepts.md",
-    "Notes.md",
-    "in my day kids fucked a sock or blow up doll instead of stuffing their dick  in tben motherboard and fucking chatgly waifu.md",
-    "i wish ii could go back and tell mislead it gets dumbed.md",
-    "Clippings/More Structures for Short Humor—So Many More.md",
-    "Dikkers/Accountability/Sept Future Qs.md",
+    "Dikkers/Preamble Feedback.md",
+    "Dikkers/Funny In A Flash Preamble.md",
     "Dikkers/Accountability",
+    "Dikkers/Flash Canvas.canvas",
     "Funny filters.jpg",
-    "Dikkers/Funny In A Flash/Flash Canvas.canvas",
-    "Dikkers/Untitled.base",
-    "IMG_4718.png",
-    "Misc/symphony.jpg",
-    "IMG_3780.jpg",
     "IMG_4581.png",
     "IMG_4585.png",
     "IMG_4586.png",
     "IMG_4587.png",
+    "IMG_4718.png",
+    "Misc/symphony.jpg",
+    "IMG_4587 1.png",
     "Clippings",
     "zArchive/Headline Archive/Challenge",
     "zArchive/Headline Archive",
     "zArchive",
-    "Misc/IMG_4267.jpg",
     "Misc",
     "Random",
-    "Dikkers"
+    "Dikkers",
+    "Beat Bin"
   ]
 }
