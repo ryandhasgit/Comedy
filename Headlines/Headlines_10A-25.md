@@ -42,3 +42,5 @@ how to make a bomb #rework
 let's see ai replace me cutting my balls with a razor
 
 updates to murphy's law
+
+an in defense of slow walkers 
