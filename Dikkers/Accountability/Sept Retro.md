@@ -10,15 +10,28 @@
 	Trying to write fast (getting faster but not there)
 - Submitted 1 piece; goal was 3
 - Writing at least 3-4 times a week 
-- Started improv to cross-poi
+- Started improv to cross-pollenate comedy chops 
+- Moved everything into Obsidian
 
 ## Oct Goals
-- Pitch 5 headlines to FB group twice a week 
-- Write every day
-- Solicit feedback on my more ripe drafts
-- Attend writer's room
+- Practice
+	Pitch 5 headlines to FB group twice a week 
+	Write every day
+	Post more of my content on social media
+		One Substack piece a week
+- Better feedback
+	Attend writer's room
+	Solicit feedback on my more ripe drafts
 - Read more
-- Post more of my content to my Substack and explore other social media
-- Be more strict about over-editing
-- Submit 3 drafts 
+- Process
+	Be more strict about over-editing
+	
+- Publish
+	Submit 3 drafts 
 - Get a piece published in Slackjaw, Weekly Humorist, or Points in Case
+- Generate more bad
+
+## Problems
+- Hit a wall with headline generation
+	Ideas began to stagnate
+- More comfortable with the bad but not comfortable enough
