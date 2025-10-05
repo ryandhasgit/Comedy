@@ -225,7 +225,7 @@
                 }
               }
             ],
-            "currentTab": 2
+            "currentTab": 1
           }
         ],
         "direction": "vertical",
@@ -240,11 +240,14 @@
   },
   "active": "461fd3b1e002dc2e",
   "lastOpenFiles": [
+    "Dikkers/Accountability/Sept Accountability.md",
+    "Dikkers/Accountability/Sept Goals.md",
+    "Dikkers/Funny In A Flash/Funny In A Flash 1.md",
+    "Dikkers/Funny In A Flash/Feedback live.md",
+    "Dikkers/Accountability/Sept Retro.md",
+    "Dikkers/Funny In A Flash",
     "Bluesky account.md",
     "Ideas.md",
-    "Dikkers/Accountability/Sept Retro.md",
-    "Dikkers/Accountability/Sept Goals.md",
-    "Dikkers/Accountability/Sept Accountability.md",
     "Untitled 1.md",
     "Untitled 2.md",
     "Untitled.md",
@@ -264,11 +267,9 @@
     "Drafts/Rodney Draft 2.md",
     "Drafts/Rodney Draft 1.md",
     "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
-    "Dikkers/Funny In A Flash 3.md",
-    "Dikkers/Flash Canvas.canvas",
-    "Dikkers/Funny In A Flash 2.md",
-    "Dikkers/Questions 2.md",
-    "Dikkers/Funny In A Flash 1.md",
+    "Dikkers/Funny In A Flash/Funny In A Flash 3.md",
+    "Dikkers/Funny In A Flash/Flash Canvas.canvas",
+    "Dikkers/Funny In A Flash/Funny In A Flash 2.md",
     "Dikkers/Untitled.base",
     "IMG_4718.png",
     "Misc/symphony.jpg",
@@ -284,7 +285,6 @@
     "Misc/IMG_4267.jpg",
     "Misc",
     "Random",
-    "Dikkers",
-    "Beat Bin"
+    "Dikkers"
   ]
 }

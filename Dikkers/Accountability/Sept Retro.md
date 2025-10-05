@@ -16,7 +16,7 @@
 ## Oct Goals
 - Practice
 	Pitch 5 headlines to FB group twice a week 
-	Write every day
+	Generate more bad, write every day
 	Post more of my content on social media
 		One Substack piece a week
 - Better feedback
@@ -25,13 +25,15 @@
 - Read more
 - Process
 	Be more strict about over-editing
-	
-- Publish
+	Finish formatting class notes
+- Get out there
 	Submit 3 drafts 
-- Get a piece published in Slackjaw, Weekly Humorist, or Points in Case
-- Generate more bad
+	Get a piece published in Slackjaw, Weekly Humorist, or Points in Case
+	Self-promote (if I say nobody wants to read this, why bother my friends, I will internalize that)
+		Build list
 
 ## Problems
-- Hit a wall with headline generation
+- Hit a wall with headline generation and beat/joke writing
 	Ideas began to stagnate
 - More comfortable with the bad but not comfortable enough
+
