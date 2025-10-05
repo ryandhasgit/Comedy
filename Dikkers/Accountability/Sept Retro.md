@@ -19,7 +19,7 @@
 	Generate more bad, write every day
 	Post more of my content on social media
 		One Substack piece a week
-- Better feedback
+- Better feedback - Stop Siloing
 	Attend writer's room
 	Solicit feedback on my more ripe drafts
 - Read more
