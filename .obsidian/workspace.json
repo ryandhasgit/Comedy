@@ -4,38 +4,21 @@
     "type": "split",
     "children": [
       {
-        "id": "bfea0278b7b31af4",
+        "id": "46429130dc795614",
         "type": "tabs",
         "children": [
           {
-            "id": "98eb2a8c56be6540",
-            "type": "leaf",
-            "state": {
-              "type": "canvas",
-              "state": {
-                "file": "Dikkers/Flash Canvas.canvas",
-                "viewState": {
-                  "x": 0,
-                  "y": -279,
-                  "zoom": 0
-                }
-              },
-              "icon": "lucide-layout-dashboard",
-              "title": "Flash Canvas"
-            }
-          },
-          {
-            "id": "ed09f266f1d303b4",
+            "id": "461fd3b1e002dc2e",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Dikkers/Funny In A Flash 3.md",
+                "file": "Drafts/Rodney Draft 2.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Funny In A Flash 3"
+              "title": "Rodney Draft 2"
             }
           }
         ]
@@ -223,55 +206,23 @@
         "height": 1096,
         "maximize": false,
         "zoom": 0
-      },
-      {
-        "id": "6b2f37bb03980687",
-        "type": "window",
-        "children": [
-          {
-            "id": "42abf791d26ced41",
-            "type": "tabs",
-            "children": [
-              {
-                "id": "fb885bea52b2812e",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
-                    "mode": "source",
-                    "source": false
-                  },
-                  "icon": "lucide-file",
-                  "title": "Rejected Rodney Dangerfield Jokes"
-                }
-              }
-            ]
-          }
-        ],
-        "direction": "vertical",
-        "x": -1858,
-        "y": 0,
-        "width": 929,
-        "height": 1080,
-        "maximize": false,
-        "zoom": 0
       }
     ]
   },
-  "active": "98eb2a8c56be6540",
+  "active": "461fd3b1e002dc2e",
   "lastOpenFiles": [
-    "Dikkers/Funny In A Flash 2.md",
-    "Dikkers/Flash Canvas.canvas",
-    "Dikkers/Questions 2.md",
+    "Drafts/Rodney Draft 1.md",
+    "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
     "Dikkers/Funny In A Flash 3.md",
+    "Dikkers/Flash Canvas.canvas",
+    "Dikkers/Funny In A Flash 2.md",
+    "Dikkers/Questions 2.md",
     "Dikkers/Funny In A Flash 1.md",
     "Dikkers/Feedback live.md",
     "Dikkers/Funny In A Flash Preamble.md",
     "Dikkers/Preamble Feedback.md",
     "Drafts/Rodney Draft 2.md",
     "Drafts/Rodney Draft 2 w notes.md",
-    "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
     "Untitled 2.md",
     "Untitled 1.md",
     "Headlines/Headlines_10A-25.md",
