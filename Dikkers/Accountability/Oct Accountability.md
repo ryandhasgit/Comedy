@@ -83,4 +83,39 @@ doesn't want to be in joke mode but just tell a joke
 trying to find what's unique about his sense of humor and how he would tell jokes he's writing so it sounds like him
 
 scott: it's a vital thing you have to figure out with standup
-there's
+there's a comedian you should know
+Emily Catalano #homework #people
+she started doing comedy tens year ago or so
+somehow found a lane where she could be herself on stage and people responded
+didn't have to go through phase of finding your story
+louis anderson had this 
+immediately recognizable to the aduience and beloved
+she got lucky doing these in SF open mics
+two years into it, she met pete holmes who saw her set
+he was rising fast, and invited her down to perofrm in big club in la
+she made a spcial trip down to do it, big opportunity
+she did a few minutes and a manager saw her and liked her a lot
+and thought he could get her on conan
+at this point she's barely five yeras into standup and she submits to conan a couple times
+and they start talking to her and book her and have her on
+she makes a quantum leap, five yeras into comedy, she's on conan
+partly because she skipped all the work to find her true voice and persona
+everyone's journey will be totally dif
+more you can read about or hear these stories
+louis was on scott's podcast, and emily talks about it like on Hot Breath podcast
+maybe you can glean wisdom from them and get inspiration
+you have the chops, funny, know how to write jokes, getting comfy on stage, it will all come together
+anotehr thing about emily, she talks really slowly
+her conan appearance is almsot agonizing to watch because of  how slow it is
+and how comfy she is without getting laughs
+and you can tell someone is really confient when they do that #takeaway 
+comfy talking for a long tiem knowing she's not getting laugh
+she says it's like connection with aduience
+when you're real person talking with them
+that's really important, bonding with them like it's one unit, one person
+connecting with other peole
+when you're up there performing and doing an act it's like a wall #takeaway 
+
+
+
+Add david calkins on IG
