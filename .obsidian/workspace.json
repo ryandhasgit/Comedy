@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Dikkers/Funny In A Flash 1.md",
+                "file": "Dikkers/Funny In A Flash Preamble.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Funny In A Flash 1"
+              "title": "Funny In A Flash Preamble"
             }
           },
           {
@@ -258,9 +258,10 @@
   },
   "active": "98eb2a8c56be6540",
   "lastOpenFiles": [
+    "Dikkers/Funny In A Flash 1.md",
+    "Dikkers/Funny In A Flash Preamble.md",
     "Dikkers/Flash Canvas.canvas",
     "Dikkers/Funny In A Flash 2.md",
-    "Dikkers/Funny In A Flash 1.md",
     "Drafts/Rodney Draft 2 w notes.md",
     "Drafts/Rodney Draft 2.md",
     "Beat Bin/Rejected Rodney Dangerfield Jokes.md",

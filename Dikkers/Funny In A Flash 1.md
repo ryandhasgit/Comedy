@@ -1,4 +1,4 @@
-Funny in a flash
+# Content
 
 Day 1
 
@@ -400,3 +400,174 @@ RECAP: #summary
 #homework better summarize
 
 #homework memorize these nad the filters
+
+
+# Questions
+
+mistake 8 i lived and worked
+
+question: is it ok to write about well without misplaced focus or to mix in?
+
+question: WHEN ITS’ TOO ABSRUD
+A: 
+
+question: spielberg didn’t say these things but he’s not a statue
+
+A: #anecdote
+gary schandling show (amazing show) he lieks it #homework watch
+larry sanders show is show within a show
+big celebs on show, one episode with robin williams doing his schtick
+they break form commercial and williams is like is that funny? insecure? gay is like your’e fucking robin williams wtf you talking about
+everyone does it
+spielberg is dick cheney confiddnt to core
+he was pimpoly nerdy kid in highs school and hated negative reviews when he made films
+
+director who kept referring to shark in jaws as whale
+so they brought in spielberg
+
+#question
+cory asks
+Capture" mistake. Is that just a question of failing to be observant, not coming up with a strong topic, headline, etc.? Apologies, but I was going back over some of my older notes when you talked about that and I think I may have missed something.
+
+A: these observations, things are off; we think them frequently but don’t writ ethem down
+that’s the issue, we fail to capture
+be observant, look for incongurityies, write down
+
+nina asks: i tend to have a dark sense of humor but what has stopped me from actually writing around those themes is the concern that I will offend someone …
+
+a: don’t think that’s a problem
+you can find anything outrageously offensive and there is an audience
+write what you want to write
+gallows humor is wonderful but sometimes its a matter of putting the righttwist, veneer #takeaway
+series of unfortunate events are dark, go down easy, they’re palatable, funny
+they’re written for kids
+think of nursery rhymes, grims tale
+they’e really dark; we have gotten soft, people like edgy, dark offensive
+there won’t be judgmenet in writers room
+
+
+MY QUESTION: how to rein in absurdity
+he’s eager to see example of that
+come to next writers room and future session with piece that’s an example
+
+does he mean there is no grounding it, or is too hard to understand? or too much going on
+#homework bring one in, maybe welcome to subway
+he is asaying, make sure the concepts are simple and gettable and comunicate in a single sentence in title or headline and try to laser focus on that concept in the piece
+and then have the tendency of beign too unhinged will help you
+toward end of piece you want it ot get unhinged 
+
+leanne: how to know if you’ve worked too long on ipece
+A; if you ask that question you’ve worked too long
+if you have 500 wrd piec, no more than an hour to churn out rough draft #important
+he can write 3k words in an hour, not good
+rough draft shouldn’t be that good
+he can do 500 words in twenty minutes 
+
+#important super #process
+let it sit, show people, go through it myself, make tweaks so it’s undrstndable
+show to people
+get notes
+then wrok on it more
+work on it an hourto punch something up
+implement good notes
+one more round, send out, feedback
+do third draft, fine tuning draft (this is the dieal)
+then do it another hour, then either submit or hit publish or post
+
+the whole idea of prace is PRACTICE THE PROCESS
+come up with concept, writing it, finishing it #important
+
+if youw ork on same piece for weeks that’s ont practice, ti’s spinning your wheels
+
+leane:: i get repeated feedback but it’s never perfect
+you get feedback you get smart stuff back but it never feels perfect
+when am i done?!
+a: he says story about hwo valuable onion was as a job
+the deadline! #important
+every week had to put paper to bed, new issue every week
+then website, once it’s uploaded it’s done
+you had to upload a certain amount a week
+deadline made you stop 
+no piece is ever perfect
+we did the best we could, put all efforts, punched up, everyone did their 2 cents, good joke beats, go with it, done
+then they had druple editing: guy redesigned site so you could access stories after published 
+and itw as death, writers never stopped editing and impriving pieces 
+they got the druple pw and go in and punching up their jokes, weeks after the article went live
+he had to take password away from people
+no more druple editing! 
+you’ll always have the feeling the piece isnt’ perfect, you have to put it out there #quote #takeaway
+upload, submit, move along #summary
+
+Q: If we are to write a short story every day, do we need to ask others if it's a good idea for a story before we spend the time to write the story.  And do that every day?
+A: yes. have a pipeline, upload concepts as a poll, or email feedback group
+that way you have a list, an organized system
+that is ideas already vetted, concepts ready for writing
+every day you pick one of these; that’s why we must capture always
+until there, do best you can
+if you don’t have time to vet, get there, start good not perfect; important ist ot go through process #takeaway
+if you do it wrong you’ll learn why it does’nt help
+get vetting done early and get on treadmill and it will feel good
+my relationship to it: poker piece
+
+#takeaway #process
+
+no such thing as having no talen
+if you work on it, you'll get better
+
+humans are humor beings, impossible not to get better
+
+q: recommendated reading list
+how todos, examples of writing
+
+a: read what you think will be helpful
+amy poeler and tina feys books are amazing for inspiration for humor writing, anything simon rich
+jenn spira (big time), former onion writer, book of short humor making movie out of it #homework
+how to: his books are one many in genre on how to write comedy, don't reccomend getting too bogged down onr eading or taking in
+we've taken in a lot in our whole lives
+time to putout #takeaway
+regurgitate and spit it out as humro writing
+he says it's more imprtant to practice writing than reading
+
+reading and learning is sometimes self-sabotage #takeaway
+
+taking couress can be act of procastinatino (oops) so he loads it with actual writing to get what you need #important
+
+caty: i read a lot of dave berry
+scott: he's conversational humorist
+humor works well for him, but not many other writers 
+
+cory: i'm in early 40s, am i too old for this, starting now, i get this is mistake 10, what are your thoughts on this
+
+a: it is mistkae 10 thing; my thoguht is you're never too old; old is godo! old is wise, ton of expeirence, ton of great perspective to share, #takeaway
+some of the best writers  of humor are old
+kurt vonnegut is old
+all best standups are old because they've been doing it for 30 eyars 
+take advantage of your age and experience #quote
+his fav experience of this is, when walter mondale ran against reagan, everyone talked about how old reagan is, so they hda a debate, and walter came out and said i'm concerned about reagans age, or someone asked him that
+asked reagan if he though his age was concern
+he did an aw schuks thing that a great speech writer, dan regan problably
+"I promise not to make my candiates youthful inexperience an issue in this campaign"
+try to make that joke about yourself; everyone else is at a distandvatge because they have youth and inexperience #advice 
+
+charlie: i started at 41, had convo with himself, wanted to leran humor, wen to amazon, first book was how to write funny by dikkers; then books, courses; i live in barcelona; he went to standup coures, weren't any when he was young; he talked to firend and said i wish i'd done them when i was 20; and friend replied, ok you didn't do it then but you are doing it in 40s;and now he's teaching how to use humor for teachers
+
+someone says: David Sedaris – Got some attention in his 30s, but Me Talk Pretty One Day (2000) made him a household name in his 40s. #homework
+
+
+scott: ti’s so easy to get started, we have internet, just goes out ther eright away
+very litel barrier of entry comprae dto other things
+the main thing stopping us is the voice saying we cna’t do it
+
+marguerite: i’m odl as shit, 62
+q:  when to submit
+
+a: anytime
+
+what he lieks to do is find the best writers or whoever makes content and watches their first ever thing! sold by oldest
+bo burnams 8th grade
+don’t be afraid to be that person
+the only thing tha tstops us in embarrassment
+nobody who listens to and gives in to shaem will give up and stop; the shameless say screw that i’ll put it up there #takeaway
+nobody is actually goin got see it, nobody cares lol #quote
+it’s an ocean 
+
