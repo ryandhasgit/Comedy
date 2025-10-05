@@ -64,3 +64,23 @@ goal is to get comforable
 giving ou manuscripts for beta feedback
 want sto get to the point she did last month
 a month from now on nov 3rd it goes to real editor
+this is her memoir, story of what has happened over 10+ years
+starte dwith handwritten journals, stream of consciousness
+
+scott: give beta reads a couple wekes to read
+and a month to incorprate feedback
+
+scott has document that he can emailo, specific questions to ask your beta readers
+
+## David Calkins
+swithced to picking focus for the week and it's been effective
+bombing with prepared material than going out without
+ok going up with not prepared, knowing he's gonna bomb
+he feels like he's impersonating comedians doing jokes, not saying it in his voice
+unsure how to do that
+can be naturally funny, until he goes into joke mode
+doesn't want to be in joke mode but just tell a joke
+trying to find what's unique about his sense of humor and how he would tell jokes he's writing so it sounds like him
+
+scott: it's a vital thing you have to figure out with standup
+there's

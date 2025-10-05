@@ -29,6 +29,7 @@
 	Be more strict about over-editing
 	Finish formatting class notes
 - Get out there
+	Finish rodney
 	Submit 3 drafts 
 	Get a piece published in Slackjaw, Weekly Humorist, or Points in Case
 	Self-promote (if I say nobody wants to read this, why bother my friends, I will internalize that)
