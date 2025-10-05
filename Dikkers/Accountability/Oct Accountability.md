@@ -17,8 +17,6 @@ applying for comedy festivals
 
 Scott: we live in this world walking around saying, mind and body are connected and we give lip service to it but don't believe it because our whole culture says we live in this scoiety (most of us anyway) born out of the idea of catersian dualism (mond and body that are separate); which is ridiculous; mind in body, connected to enrvous system, but we don't really believe because of cultural traditions; if you change mindset and accept and believe, it's a super power
 
-
-
 ## Mine
 
 – good to do multiple feedback gorups
@@ -38,3 +36,6 @@ how valuable is that
 incalculable
 if you can creat something that aachieves or rises above standard
 in top 0.1%
+
+## Lu Ann
+Trying to post more
