@@ -114,8 +114,36 @@ she says it's like connection with aduience
 when you're real person talking with them
 that's really important, bonding with them like it's one unit, one person
 connecting with other peole
-when you're up there performing and doing an act it's like a wall #takeaway 
+when you're up there performing and doing an act it's like a wall #takeaway #major 
 
+scott: so interesting, different media of comedy, and the requirements
+standup is so personal
+i always say audience wants puppet show, a facade, but they need the facade to be genuine, a real person doing a real thing so they can see what's happening, and it can work
+of course everyone is different
+steve martin, and how fake his persona was
+but it was so obviously fake, it was a parody
+his act was like a kid being goofy and funny to perform for you, it was very endearing 
+not everyone cna get away with that
+certain pepole can get away with something other people can't
+gotta find your lane #takeaway 
+
+## Helen
+wonders if scott has resources for putting one-woman show or two-woman show
+
+scott: i don't
+it's pretty cut and dry, it's your hour, your time
+need to find a local theatre
+in new york, ucb wouild let anyone do a one person show
+you'd sign up, find a spot, do it
+so many people blew up that way
+ellie kemper
+chris kelly
+#takeaway 
+
+you should do your two-woman show in LA, more traction than Utah
+
+## My Notes
+one form of comedy can be a vehicle to success elsewhere
 
 
 Add david calkins on IG
