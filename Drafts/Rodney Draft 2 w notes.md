@@ -13,6 +13,9 @@ I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds l
 
 My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it's any man but me, and she threatened to drive us off a cliff. How 'bout that? The first promise I thought she'd actually keep!
 
+My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss me, and he's always licking his balls. but I guess main ain't good enough?
+
+. She and I never have sex. I get so little action, even my dog won't kiss me. 
 I got no sex life. Even my dog won’t kiss me. He's always licking his balls, but I guess mine ain't good enough for him. Anybody? Anybody?
 
 I’m not finding much respect these days. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
