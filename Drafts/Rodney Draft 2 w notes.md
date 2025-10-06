@@ -13,20 +13,18 @@ My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss m
 by Ryan David
 
 
-We never have sex, my wife and me. Once I said, "Hey Honey, wanna move this to the bed?" She goes, "Sure sweetie, if it's your deathbed!
-Only if it's your deathbed, you rotten whoring SOB.
-
-I don't get no respect these days, so I bought myself a gun. The guy said, "Promise not to off anyone important, will ya?" I told 'em, "Don't worry pal, just my wife!" I tell ya.
+We never have sex, my wife and me. Once I said, "Wanna move this to the bed, Honey?" She goes, "Sure sweetie, if it's your deathbed!
+Only if it's your deathbed, you rotten whoring SOB. And then she fucked my neighbor! 
 
 I’m not finding much respect these days. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
 
+I don't get no respect these days, so I bought myself a gun. The guy said, "Promise not to off anyone important, will ya?" I told 'em, "Don't worry pal, just my wife!" I tell ya.
+
 She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. 
 
-But I ain’t no prize neither. I went to a bachelor auction and wound up having to pay a girl to touch me. So ya know, just another Friday night. 
+I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor—nobody. At night I sit by the phone with a single-action revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
 
 My wife—listen to this—she hates me, probably 'cause of all the prostitutes and my trying to sell her to a Burmese warlord. She hates my guts so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
-
-I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor—nobody. At night I sit by the phone with a single-action revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
 
 Things are tough. I'm constantly broke. My wife's banging my neighbor. I'm not getting no respect. So I pawned my mother's gold tooth that I stole outta her mouth while she was getting her tubes tied. She did it cause I was begging for money and she wouldn't lend me none, even if it meant losing my house, even with a gun in her face. She didn't want another one of me, so at eighty-five she got 'em tied, just in case!
 
