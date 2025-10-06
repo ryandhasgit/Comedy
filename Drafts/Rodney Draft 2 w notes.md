@@ -18,9 +18,10 @@ No respect, I tell ya,—none—so I bought myself a gun. The guy joked, "Promis
 
 She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. 
 
+My wife—listen to this—she hates me, probably 'cause of all the whores and my trying to sell her to a Burmese slavelord. She hates my guts so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
+
 I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor—nobody. At night I sit by the phone with this single-action revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
 
-My wife—listen to this—she hates me, probably 'cause of all the whores and my trying to sell her to a Burmese warlord. She hates my guts so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
 
 Things are tough. I'm constantly broke. My wife's banging my neighbor. I'm not getting no respect. So I pawned my mother's gold tooth that I stole outta her mouth while she was getting her tubes tied. She did it cause I was begging for money and she wouldn't lend me none, even if it meant losing my house, even with a gun in her face. She didn't want another one of me, so at eighty-five she got 'em tied, just in case!
 
