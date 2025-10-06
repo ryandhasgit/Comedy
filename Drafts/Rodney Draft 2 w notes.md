@@ -7,13 +7,17 @@ scott didn't mentioend length as aproblem, so maybe i'll keep that
 
 by Ryan David
 
-My wife, I tell ya. She and I never have sex. The other day I wanted to do foreplay. She said, you're lucky to be getting one-play!
+My wife, I tell ya. She's something. I 
+
+She and I never have sex. The other day I wanted to do foreplay. She said, you're lucky to be getting one-play!
 
 I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds like there’s no E? Just R-E-S-P-C-T? That’s the kind of respect I get. I tell ya.
 
 My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it's any man but me, and she threatened to drive us off a cliff. How 'bout that? The first promise I thought she'd actually keep!
 
-My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss me, and he's always licking his balls. but I guess main ain't good enough?
+My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss me and he's always licking his balls. But I guess main ain't good enough. 
+
+I get no respect. 
 
 . She and I never have sex. I get so little action, even my dog won't kiss me. 
 I got no sex life. Even my dog won’t kiss me. He's always licking his balls, but I guess mine ain't good enough for him. Anybody? Anybody?
