@@ -13,11 +13,11 @@ My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss m
 by Ryan David
 
 
-My wife, I tell ya. She and I never have sex. Once I said, "Wanna move this to the bed, Honey?" She goes, "Only if it's your deathbed, you whoring SOB." 
+My wife, I tell ya. She and I never have sex. I asked her, "Wanna move this to the bed, Honey?" She goes, "Only if it's your deathbed, you whoring SOB." 
 
-I’m not finding much respect these days. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
+I don't get no respect, I tell ya. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
 
-I don't get no respect these days, so I bought myself a gun. The guy said, "Promise not to off anyone important, will ya?" I told 'em, "Don't worry pal, just my wife!" I tell ya.
+Gettin' no respect none these days, so I bought myself a gun. The guy joked, "Promise not to off anyone important, will ya?" I told 'em, "Don't worry pal, just my wife!" I tell ya.
 
 She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. 
 
