@@ -16,9 +16,9 @@ My wife, I tell ya. She and I never have sex. I said, "Wanna move this to the be
 
 She's something, my wife. I asked my neighbor if he’d seen her. He replied, "Not really, I was blindfolded the whole time!" 
 
-Boy, do I get no respect, so I bought myself a gun. The salesman, he was funny. He made me promise not to kill anyone important. I told 'em, "Don't worry pal, just my wife!"
+Boy, do I get no respect, so I bought myself a gun. The salesman, he was funny—made me promise not to kill anyone important. I said, "Don't worry pal, just my wife!" I tell ya.
 
-She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. I tell ya.
+She’s no looker, my wife. You couldn't sell her if you tried. And I'm so bo! They wouldn't take her in Myanmar. They said, try the fourth world, pal. I tell ya.
 
 My wife—listen to this—she hates me, probably 'cause of all the whores and my trying to sell her to a Burmese drug lord. So she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
 
