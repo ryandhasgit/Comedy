@@ -12,13 +12,15 @@ My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss m
 
 by Ryan David
 
-My wife, I tell ya. She and I never have sex. I asked her, "Wanna move this to the bed?" She goes, "Only if it's your deathbed, you whoring SOB." Then she fucked our neighbor! Anybody? Anybody?
+My wife, I tell ya. She and I never have sex. I asked her, "Wanna move this to the bed?" She goes, "Only if it's your deathbed, you whoring S.O.B." 
+
+I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
 
 No respect, I tell ya,—none—so I bought myself a gun. The guy joked, "Promise not to off anyone important, will ya?" I told 'em, "Don't worry pal, just my wife!" 
 
 She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. 
 
-My wife—listen to this—she hates me, probably 'cause of all the whores and my trying to sell her to a Burmese slavelord. She hates my guts so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
+My wife—listen to this—she hates me, probably 'cause of all the whores and my trying to sell her to a Burmese drug lord. She hates my guts so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
 
 I tell ya, I don’t get no respect, not from my wife, my dog, my neighbor—nobody. At night I sit by the phone with this single-action revolver and think, "The next one of youse to call is getting this bullet." Lucky for them, nobody ever calls!
 
