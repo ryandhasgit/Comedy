@@ -15,30 +15,30 @@ Important:
 	iMazing backups
 
 Programs:
+	- amd radeon software
+	- anydesk
 	- HWInfo
 	- HWMonitor
-	- anydesk
+	- iCue 
+	- iMazing
 	- LibreOffice
+	- logitech ghub
+	- nordvpn
+	- notepad++
 	- notepad++
 	- nzxt cam
 	- obsidian
 	- qBittorent
 	- Slack
+	- Spotify
 	- Telegram
 	- twinkle tray
-	- vs code
 	- visual studio
-	- wiztree
 	- vlc
-	- zoom
-	- iMazing
-	- nordvpn
-	- amd radeon software
-	- logitech ghub
-	- Spotify
-	- notepad++
+	- vs code
 	- winrar
-	- iCue 
+	- wiztree
+	- zoom
 
 
 ---
@@ -69,3 +69,11 @@ firefox:
 		ublock origin
 	
 
+Obsidian Extensions:
+	Better Word Count
+	Code Editor Shortcuts
+	Dataview
+	GitHub Sync
+	Smart Typography
+	Sort & Permute lines
+	Tagged Documents Viewer
