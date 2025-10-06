@@ -12,7 +12,7 @@ My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss m
 
 by Ryan David
 
-My wife, I tell ya. She and I never have sex. I asked her once, "Wanna move this to the bed?" She goes, "Only if it's your deathbed, you whoring S.O.B." 
+My wife, I tell ya. She and I never have sex. I said, "Wanna move this to the bed?" She goes, "Only if it's your deathbed, you whoring S.O.B." 
 
 She's something, my wife. I asked my neighbor if he’d seen her. He replied, "Not really, I was blindfolded the whole time!" 
 
