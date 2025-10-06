@@ -12,12 +12,12 @@ My wife—listen to this—she hates me, probably 'cause of all the whores and m
 
 Things are tough. I'm constantly broke. My wife's banging my neighbor. I'm not getting no respect. So I pawned my mother's gold tooth that I stole outta her mouth while she was getting her tubes tied. She did it cause I was begging for money and she wouldn't lend me none, even if it meant losing my house, even with a gun in her face. She didn't want another one of me, so at eighty-five she got 'em tied, just in case!
 
-I got no sex life. Even my dog won’t kiss me. I tell ya, he's always licking his balls, but I guess mine ain't good enough for him. Anybody? Anybody?
+I got no sex life. Even my dog won’t kiss me. How 'bout that? He's always licking his balls, but I guess mine ain't good enough for him. Anybody? Anybody?
 
-Listen to this. Once, in the dead of night, I took a taxi up the pacific coast highway. There's this stretch where emptiness is illuminated endlessly by lonesome moonlight. I joked, “How’s my passenger-ing?” but this fella didn’t flinch. Maybe it was the booze or his ugly mug, but boy did I get no respect from that. The sumbitch never saw it coming, my gun, pressed into his neck. I screamed, "Cat got your tongue, pal? I bet you're fucking my wife too, ain't ya?” Then there was nothing but metal and glass and blood—no driver, no trail of guts—like the car flipped itself. I pored over newspapers and obits and police scanners, but never found out if lil' Felipe, his infant son, awoke the next day fatherless or if it was all a dream. 
+Listen to this. Once, in the dead of night, I took a taxi up the pacific coast highway. There's this stretch where emptiness is illuminated endlessly by lonesome moonlight. I joked, “How’s my passenger-ing?” but this fella didn’t flinch. Maybe it was the booze or his ugly mug, but boy did I get no respect from that. The sumbitch never saw it coming, my gun, pressed into his neck. I screamed, "Cat got your tongue, pal? I bet you're fucking my wife too, ain't ya?” Then there was nothing but metal and glass and blood—no driver, no trail of guts—just me in the back, like the car flipped itself. I pored over newspapers and obits and police scanners, but never found out if lil' Felipe, his infant son, awoke the next day fatherless or if it was all a dream. 
 
 Still, better than letting my wife drive!
 
-But this goldfish business is no joke. I might go belly up myself. Whatcha laughing for, Doc? I'm serious. Ain't you supposed to be pumping my stomach? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. But I guess I'm a lucky, 'cause at the end I can ask Death, "What took ya so long?" He was probably banging my wife! 
+But this goldfish business is no joke. I might go belly up myself. Whatcha laughing for, Doc? I'm serious. Ain't you supposed to be pumping my stomach? I feel like a car battery with all these wires in me. I tell ya, I got more cords than a rock band. But I guess I'm a lucky, 'cause at the end I can ask Death, "What took ya so long?" Gee, he was probably banging my wife! 
 
-You guys have been great, but I've got a coma to get to!
+You guys have been great but I've got a coma to get to!
