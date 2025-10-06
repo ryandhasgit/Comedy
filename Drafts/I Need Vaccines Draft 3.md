@@ -4,7 +4,14 @@ This used to be a happy nation—a healthy nation. Back in my day, children didn
 
 My point is: I need vaccines like I need a hole in my head—and because I do not need vaccines, I do not need a hole in my head. So forget I mentioned that last part.
 
-We did things right back then. Regulations? Didn’t need ‘em. The rivers were so clean you could really taste the lead in the pipes, and it built character! The lead in our gasoline caused some problems, I’ll give you that. But if you ask me, the biggest lead problem was using it to create holes in the heads of public servants with powerful family influence, as if failing to understand that the head already has several holes.
+
+
+
+that some of of you are so hopped up on antidepressants your approach to solving every problem involves probing the noggins of people you don’t like.  
+
+We did things right back then. Regulations? Didn’t need ‘em. The rivers were so clean you could really taste the lead in the pipes, and it built character! The lead in our gasoline caused some problems, I’ll give you that. But if you ask me, the biggest lead problem was using it to create holes in the heads of public servants with powerful family influence, 
+
+Listen, I know things are tough because of how bad the economy is, and there’s been a lot of attempts recently to solve problems by probing some notable noggins, but there’s no reason to go searching in mine. Why?
 
 Two ears, two nostrils, one mouth. Those are the main holes. The eyes, they’re kind of like holes, in that they close and open. If you shoot someone in the head, their eyes won’t open or close anymore and you'll actually have fewer holes than you started with. So at that point, why bother?
 

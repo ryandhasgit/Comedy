@@ -83,7 +83,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Headlines/Headlines_10A-25.md",
+                "file": "Drafts/I Need Vaccines Draft 3.md",
                 "mode": "source",
                 "source": false,
                 "backlinks": true,
@@ -98,7 +98,7 @@
                 }
               },
               "icon": "lucide-file",
-              "title": "Headlines_10A-25"
+              "title": "I Need Vaccines Draft 3"
             }
           }
         ],
@@ -179,7 +179,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Headlines/Headlines_9E-25.md",
+            "file": "Drafts/I Need Vaccines Draft 3.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -233,8 +233,21 @@
       "bases:Create new base": false
     }
   },
-  "active": "14f52ccaceec8dd0",
+  "active": "0515eb852043bb59",
   "lastOpenFiles": [
+    "Headlines/Headlines_10A-25.md",
+    "Drafts/I Need Vaccines Draft 3.md",
+    "zArchive/I Need Vaccines Draft 2.md",
+    "Beat Bin/Vaccines beats.md",
+    "Votes.png",
+    "Headlines/Headline Archive/Challenge/Alex Baia Challenge.md",
+    "Headlines/Headline Archive/Challenge/Challenge Pitched w votes.md",
+    "Headlines/Headline Archive/Challenge/Headlines Summarized.md",
+    "Headlines/Headline Archive/Challenge",
+    "Headlines/Headline Archive",
+    "Drafts/Drafts Canvas.canvas",
+    "Random/i wish ii could go back and tell mislead it gets dumbed.md",
+    "Drafts/Rodney Draft 3.md",
     "Ideas.md",
     "Dikkers/Accountability/Sept Future Qs.md",
     "Dikkers/Accountability/Sept Advice.md",
@@ -256,17 +269,8 @@
     "Dikkers/Funny In A Flash Preamble.md",
     "Dikkers/Preamble Feedback.md",
     "Headlines/Headlines_9E-25.md",
-    "Dikkers/Funny In A Flash 1.md",
-    "Beat Bin/Browser tab beats.md",
     "Dikkers/Flash Canvas.canvas",
-    "Dikkers/Funny In A Flash 3.md",
-    "Untitled 2.md",
-    "Drafts/Rodney Draft 2.md",
-    "Untitled 1.md",
-    "Drafts/Rodney Draft 2 w notes.md",
-    "Headlines/Headlines_10A-25.md",
     "IMG_4718.png",
-    "Beat Bin/Riddles Three.md",
     "IMG_4581.png",
     "IMG_3780.jpg",
     "IMG_4587.png",
@@ -277,8 +281,6 @@
     "zArchive",
     "Clippings",
     "Misc/IMG_4267.jpg",
-    "Misc",
-    "Drafts",
-    "Beat Bin"
+    "Misc"
   ]
 }
