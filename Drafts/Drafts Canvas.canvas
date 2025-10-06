@@ -1,6 +1,7 @@
 {
 	"nodes":[
-		{"id":"ab25595c8f91d619","x":-125,"y":-30,"width":250,"height":130,"type":"text","text":""}
+		{"id":"52e7b071805c4a09","type":"file","file":"Drafts/Rodney Draft 3.md","x":-760,"y":-480,"width":580,"height":480},
+		{"id":"fc1cec0c7d6f4b79","x":-80,"y":-480,"width":600,"height":480,"type":"file","file":"Drafts/Star Trek & Star Wars.md"}
 	],
 	"edges":[]
 }

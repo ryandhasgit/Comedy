@@ -11,17 +11,14 @@
             "id": "e324e6ed3f4fa801",
             "type": "leaf",
             "state": {
-              "type": "canvas",
+              "type": "markdown",
               "state": {
-                "file": "Drafts/Drafts Canvas.canvas",
-                "viewState": {
-                  "x": 0,
-                  "y": 0,
-                  "zoom": 0
-                }
+                "file": "Beat Bin/I Need Vaccines Beats.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-layout-dashboard",
-              "title": "Drafts Canvas"
+              "icon": "lucide-file",
+              "title": "I Need Vaccines Beats"
             }
           }
         ]
@@ -241,13 +238,15 @@
       }
     ]
   },
-  "active": "eeca035a49b6f0a7",
+  "active": "e324e6ed3f4fa801",
   "lastOpenFiles": [
-    "Beat Bin/I Need Vaccines Beats.md",
     "Drafts/Drafts Canvas.canvas",
+    "Beat Bin/ChatGPT Therapist Beats.md",
+    "Drafts/Star Trek & Star Wars.md",
+    "Drafts/Rodney Draft 3.md",
+    "Beat Bin/I Need Vaccines Beats.md",
     "Random/i wish ii could go back and tell mislead it gets dumbed.md",
     "Drafts/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
-    "Drafts/Star Trek & Star Wars.md",
     "in my day kids fucked a sock or blow up doll instead of stuffing their dick  in tben motherboard and fucking chatgly waifu.md",
     "well.md",
     "sd.md",
@@ -265,7 +264,6 @@
     "Drafts base.base",
     "Bluesky account.md",
     "Beat Bin/Trek Beats.md",
-    "Drafts/Rodney Draft 3.md",
     "Beat Bin/Rejected Rodney Dangerfield Jokes.md",
     "Drafts/Rodney Draft 2.md",
     "Dikkers/Accountability/Oct Accountability.md",
@@ -277,7 +275,6 @@
     "Dikkers/Funny In A Flash/Funny In A Flash 1.md",
     "Dikkers/Funny In A Flash/Feedback live.md",
     "Dikkers/Funny In A Flash",
-    "Potential Concepts.md",
     "Dikkers/Accountability",
     "Dikkers/Funny In A Flash/Flash Canvas.canvas",
     "Dikkers/Untitled.base",
