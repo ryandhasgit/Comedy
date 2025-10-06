@@ -12,7 +12,9 @@ But don’t take it from me. Here at the HHS, we’ve reached tenuous conclusion
 
 And holes: very bad for the head, especially mine.
 
-Listen, I get that you're curious what's inside the skull of healthy genius and looks and talks like a totally normal human. And you’re probably so loaded up on antidepressants, you’re itching to see what's inside. But it’s not like there’s a limited edition Happy Meal toy in there. Nor will candy burst from my skull if struck with a barrage of nails from a t-shirt cannon.
+Listen, I get that you're curious what's inside the skull of healthy genius and looks and talks like a totally normal human. And you’re probably so loaded up on antidepressants, you’re itching to see his melon scrambled a la Gallegher. Would it be morbid, horrendous, and emblematic of the 
+
+.  what's inside. But it’s not like there’s a limited edition Happy Meal toy in there. 
 
 
 
