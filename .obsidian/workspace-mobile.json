@@ -83,22 +83,13 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Clippings/More Structures for Short Humor—So Many More.md",
+                "file": "Headlines/Headlines_10A-25.md",
                 "mode": "source",
                 "source": false,
-                "backlinks": true,
-                "backlinkOpts": {
-                  "collapseAll": false,
-                  "extraContext": false,
-                  "sortOrder": "alphabetical",
-                  "showSearch": false,
-                  "searchQuery": "",
-                  "backlinkCollapsed": false,
-                  "unlinkedCollapsed": true
-                }
+                "backlinks": false
               },
               "icon": "lucide-file",
-              "title": "More Structures for Short Humor—So Many More"
+              "title": "Headlines_10A-25"
             }
           }
         ],
@@ -235,8 +226,8 @@
   },
   "active": "14f52ccaceec8dd0",
   "lastOpenFiles": [
-    "Headlines/Headlines_10A-25.md",
     "Clippings/More Structures for Short Humor—So Many More.md",
+    "Headlines/Headlines_10A-25.md",
     "Drafts/I Need Vaccines Draft 3.md",
     "Backup notes.md",
     "zArchive/I Need Vaccines Draft 2.md",
