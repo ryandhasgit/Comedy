@@ -187,7 +187,8 @@
       "templates:Insert template": false,
       "command-palette:Open command palette": false,
       "bases:Create new base": false,
-      "github-sync:Sync with Remote": false
+      "github-sync:Sync with Remote": false,
+      "obsidian-plugin-tagged-documents-viewer:Tagged Documents Viewer": false
     }
   },
   "floating": {
@@ -260,8 +261,8 @@
   "active": "e324e6ed3f4fa801",
   "lastOpenFiles": [
     "Drafts/Rodney Draft 2.md",
-    "Drafts/Rodney Draft 2 w notes.md",
     "Drafts/Rodney Draft 1.md",
+    "Drafts/Rodney Draft 2 w notes.md",
     "Dikkers/Accountability/Oct Accountability.md",
     "Dikkers/Accountability/Oct -Sept Retro.md",
     "Clippings/More Structures for Short Humor—So Many More.md",

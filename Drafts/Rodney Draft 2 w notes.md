@@ -15,9 +15,9 @@ by Ryan David
 
 My wife, I tell ya. She and I never have sex. I asked her, "Wanna move this to the bed, Honey?" She goes, "Only if it's your deathbed, you whoring SOB." 
 
-I don't get no respect, I tell ya. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
+Boy, do I get no respect. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
 
-Gettin' no respect none these days, so I bought myself a gun. The guy joked, "Promise not to off anyone important, will ya?" I told 'em, "Don't worry pal, just my wife!" I tell ya.
+No respect, I tell ya,—none—so I bought myself a gun. The guy joked, "Promise not to off anyone important, will ya?" I told 'em, "Don't worry pal, just my wife!" I tell ya.
 
 She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. 
 
