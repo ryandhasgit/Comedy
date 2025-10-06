@@ -46,3 +46,10 @@ updates to murphy's law
 an in defense of slow walkers 
 
 terrible promoted posts by influencers
+
+protest signs that won’t get you canceled 
+protest signs reprised 
+FAA guidelines for protest signs
+department of wars updated guidelines for protest signs 
+
+department of war on drugs 
