@@ -12,7 +12,7 @@ But don’t take it from me. Here at the HHS, we’ve reached tenuous conclusion
 
 And holes: very bad for the head, especially mine.
 
-Listen, I get that you're curious what's inside the skull of healthy genius and looks and talks like a totally normal human. And you’re probably so loaded up on antidepressants, you’re itching to see his melon scrambled a la Gallegher. Would it be morbid, horrendous, and emblematic of the 
+Listen, I get that you're curious what's inside the skull of healthy genius and looks and talks like a totally normal human. And you’re probably so loaded up on antidepressants, you’re itching to see his melon scrambled a la Gallegher. But I assure you, no matter how funny it is to joke about it, it would be morbid, horrendous, and emblematic of the ever-worsening political division that seems to sink further and further into chaos—even if it would be a ltitle funny. But I assure you, no matter how right that broken clock may be,  someone just as Draconian will wind up taking my place. So let me get back to doing the kind of hard work that will affix me in the annals of history and follow in the footsteps of my great 
 
 .  what's inside. But it’s not like there’s a limited edition Happy Meal toy in there. 
 
