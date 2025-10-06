@@ -7,14 +7,18 @@ scott didn't mentioend length as aproblem, so maybe i'll keep that
 
 by Ryan David
 
-My wife, I tell ya, she's something. I said, "Hey Honey, wanna move this to bed?" And she said, "Sure sweetie, if it's your deathbed!
+I tell ya, my wife's something. I asked my neighbor if he’d seen my her. He replied, "Not really, I was blindfolded the whole time!" 
+
+My wife, I tell ya, she's something. I said, "Hey Honey, wanna move this to bed?" She goes, "Sure sweetie, if it's your deathbed!
 Only if it's your deathbed, you rotten SOB.
 
-I don't get no respect these days. I went to buy a gun the other day. The guy made me not to off anyone important. I said, don't worry, just my wife! 
+I don't get no respect these days. I went to buy a gun the other day. The guy said "Promise not to off anyone important, will ya?" I said, don't worry, just my wife! 
 
 I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds like there’s no E? Just R-E-S-P-C-T? That’s the kind of respect I get. I tell ya.
 
-My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it's any man but me, and she threatened to drive us off a cliff. How 'bout that? The first promise I thought she'd actually keep!
+My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it's any man but me, and she threatened to boil my head 
+
+? The first promise I thought she'd actually keep!
 
 My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss me and he's always licking his balls. But I guess main ain't good enough. 
 
