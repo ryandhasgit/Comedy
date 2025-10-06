@@ -8,7 +8,9 @@ scott didn't mentioend length as aproblem, so maybe i'll keep that
 by Ryan David
 
 My wife, I tell ya, she's something. I said, "Hey Honey, wanna move this to bed?" And she said, "Sure sweetie, if it's your deathbed!
-You rotten SOB
+Only if it's your deathbed, you rotten SOB.
+
+I don't get no respect these days. I went to buy a gun the other day. The guy made me not to off anyone important. I said, don't worry, just my wife! 
 
 I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds like there’s no E? Just R-E-S-P-C-T? That’s the kind of respect I get. I tell ya.
 
@@ -18,14 +20,12 @@ My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss m
 
 I get no respect. 
 
-. She and I never have sex. I get so little action, even my dog won't kiss me. 
-I got no sex life. Even my dog won’t kiss me. He's always licking his balls, but I guess mine ain't good enough for him. Anybody? Anybody?
 
 I’m not finding much respect these days. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
 
 She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. 
 
-But I ain’t no prize neither. I went to a bachelor auction and wound up having to pay a girl to date me. So ya know, just another Friday night. 
+But I ain’t no prize neither. I went to a bachelor auction and wound up having to pay a girl to touch me. So ya know, just another Friday night. 
 
 My wife—listen to this—she hates me, probably 'cause of all the prostitutes and my trying to sell her to a Burmese warlord. She hates my guts so much, she poisoned me with a toxin found only in goldfish. It’s bad enough she tried to kill me, but she gotta off my aquarium too? 
 
