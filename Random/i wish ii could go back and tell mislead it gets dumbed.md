@@ -9,7 +9,10 @@ con: trump is reinstated
 pro: trump doesn’t use his twitter acxount
 con: trump doesn’t use twitter because he created his own. and also, a bitcoin
 
-you’re probably thi, 
+you’re probably thinking, this emulmebtd clause will really sink him. these tax returns are gonna be his end. counter point: trumpcoin
+
+get ready for an executive order that tries to force muslims out do ten US
+and get ready also for an executive order that sends legal migrants to foreign prisons 
 
 
 well tough titties dude because not only does ir get worse it gets a whole lot stupider 
