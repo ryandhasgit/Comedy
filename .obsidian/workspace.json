@@ -11,13 +11,14 @@
             "id": "e324e6ed3f4fa801",
             "type": "leaf",
             "state": {
-              "type": "bases",
+              "type": "markdown",
               "state": {
-                "file": "Drafts/Drafts base.base",
-                "viewName": "Table"
+                "file": "well.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-table",
-              "title": "Drafts base"
+              "icon": "lucide-file",
+              "title": "well"
             }
           }
         ]
@@ -237,8 +238,21 @@
       }
     ]
   },
-  "active": "eeca035a49b6f0a7",
+  "active": "e324e6ed3f4fa801",
   "lastOpenFiles": [
+    "sd.md",
+    "well.md",
+    "Headlines/Headlines_10A-25.md",
+    "Votes.png",
+    "IMG_4587.png",
+    "IMG_4581.png",
+    "IMG_4586.png",
+    "IMG_4585.png",
+    "Ideas.md",
+    "Random/i wish ii could go back and tell mislead it gets dumbed.md",
+    "Funny filters.jpg",
+    "Drafts/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
+    "Draft Map.md",
     "Drafts/Rodney Draft 1.md",
     "Drafts/Drafts base.base",
     "Drafts base.base",
@@ -253,30 +267,18 @@
     "Clippings/More Structures for Short Humor—So Many More.md",
     "Untitled.md",
     "Dikkers/Accountability/Sept Goals.md",
-    "Headlines/Headlines_10A-25.md",
     "Dikkers/Accountability/Sept Accountability.md",
     "Dikkers/Funny In A Flash/Funny In A Flash 1.md",
     "Dikkers/Funny In A Flash/Feedback live.md",
     "Dikkers/Funny In A Flash",
-    "Ideas.md",
-    "well.md",
-    "terrible promoted posts by influencers.md",
     "Potential Concepts.md",
     "Notes.md",
     "in my day kids fucked a sock or blow up doll instead of stuffing their dick  in tben motherboard and fucking chatgly waifu.md",
-    "i wish ii could go back and tell mislead it gets dumbed.md",
-    "Dikkers/Accountability/Sept Future Qs.md",
     "Dikkers/Accountability",
-    "Funny filters.jpg",
     "Dikkers/Funny In A Flash/Flash Canvas.canvas",
     "Dikkers/Untitled.base",
-    "IMG_4718.png",
     "Misc/symphony.jpg",
     "IMG_3780.jpg",
-    "IMG_4581.png",
-    "IMG_4585.png",
-    "IMG_4586.png",
-    "IMG_4587.png",
     "Clippings",
     "zArchive/Headline Archive/Challenge",
     "zArchive/Headline Archive",
