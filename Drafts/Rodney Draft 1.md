@@ -6,7 +6,7 @@ My old man, he was a drag. I once said: Pops, let’s play catch! So he ran outt
 
 Have you seen my wife? She's no looker. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal.
 
-I tell ya, I’m not finding much respect these days. I asked my neighbor, "You seen my wife today?" He said, "Not really, I was wearing a blindfold the whole time!"
+I tell ya, I’m not finding much respect these days. I asked my neighbor, "You seen my wife today?" He said, "Not really, I was wearing a blindfold the whole time!" 
 
 But ya know, I’m no prize neither. I went to a bachelor auction and they couldn’t give me away for pennies. I wound up having to pay a girl to date me! So ya know, just another Friday night. 
 

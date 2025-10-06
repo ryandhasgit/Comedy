@@ -3,26 +3,23 @@ top levels, mine: remove dog joke maybe, and where he's listing people, just add
 
 scott didn't mentioend length as aproblem, so maybe i'll keep that
 
+My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it's any man but me, and she threatened to boil my head. The first promise I thought she'd actually keep!
+
+My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss me and he's always licking his balls. But I guess main ain't good enough. Anybody? Anybody?
+
+
 
 
 by Ryan David
 
-I tell ya, my wife's something. I asked my neighbor if he’d seen my her. He replied, "Not really, I was blindfolded the whole time!" 
+I tell ya, I don't get no respect. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
 
-My wife, I tell ya, she's something. I said, "Hey Honey, wanna move this to bed?" She goes, "Sure sweetie, if it's your deathbed!
+We never have sex, my wife and me. Once I said, "Hey Honey, wanna move this to the bed?" She goes, "Sure sweetie, if it's your deathbed!
 Only if it's your deathbed, you rotten SOB.
 
-I don't get no respect these days. I went to buy a gun the other day. The guy said "Promise not to off anyone important, will ya?" I said, don't worry, just my wife! 
+I don't get no respect these days, so I bought myself a gun. The guy said "Promise not to off anyone important, will ya?" I told 'em, "Don't worry pal, just my wife!"
 
-I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds like there’s no E? Just R-E-S-P-C-T? That’s the kind of respect I get. I tell ya.
 
-My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it's any man but me, and she threatened to boil my head 
-
-? The first promise I thought she'd actually keep!
-
-My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss me and he's always licking his balls. But I guess main ain't good enough. 
-
-I get no respect. 
 
 
 I’m not finding much respect these days. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
