@@ -1,18 +1,6 @@
-
-top levels, mine: remove dog joke maybe, and where he's listing people, just add others in there that we didn' talk tabout? having everyone in there might not be strong ehough to jutify so much being wrtapped into one joke
-
-scott didn't mentioend length as aproblem, so maybe i'll keep that
-
-My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it's any man but me, and she threatened to boil my head. The first promise I thought she'd actually keep!
-
-My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss me and he's always licking his balls. But I guess main ain't good enough. Anybody? Anybody?
-
-
-
-
 by Ryan David
 
-My wife, I tell ya. She and I never have sex. I said, "Wanna move this to the bed?" She goes, "Only if it's your deathbed, you whoring S.O.B." Then she shtupped my neighbor! 
+My wife, I tell ya. She and I never have sex. I said, "Wanna move this to the bed, sweetheart?" She goes, "Only if it's your deathbed, you whoring S.O.B." Then she shtupped my neighbor! 
 
 Boy, do I get no respect, so I bought myself a gun. The salesman, he was funny, made me promise not to kill anyone important. I said, "Don't worry pal, just myself!"
 
