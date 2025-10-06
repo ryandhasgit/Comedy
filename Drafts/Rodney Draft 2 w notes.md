@@ -17,6 +17,7 @@ My wife, I tell ya. She and I never have sex. I asked her, "Wanna move this to t
 It's tough being a broke comedian. I asked my neighbor if he’d seen my wife. He replied, "Not really, I was blindfolded the whole time!" 
 
 Boy, do I get no respect, so I bought myself a gun. The guy joked, "Promise not to off anyone important, will ya?" I told 'em, "Don't worry pal, just my wife!" 
+The guy, he cracked a joke, made me promise not to off anyone important.
 
 She’s no looker, my wife. You couldn't sell her if you tried, and I tried! They wouldn't take her in Myanmar. They said, try the fourth world, pal. I tell ya.
 
