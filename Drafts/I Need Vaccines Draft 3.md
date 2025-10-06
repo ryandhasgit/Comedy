@@ -13,6 +13,9 @@ We did things right back then. Regulations? Didn’t need ‘em. The rivers were
 
 Listen, I know things are tough because of how bad the economy is, and there’s been a lot of attempts recently to solve problems by probing some notable noggins, but there’s no reason to go searching in mine. Why?
 
+listen i know you’re thinking, what’s in there? a happy meal toy? 
+
+as much as you’d be doing me a favor making a vaccine vent 
 Two ears, two nostrils, one mouth. Those are the main holes. The eyes, they’re kind of like holes, in that they close and open. If you shoot someone in the head, their eyes won’t open or close anymore and you'll actually have fewer holes than you started with. So at that point, why bother?
 
 But don’t take it from me. Here at the HHS, we’ve reached tenuous conclusions about public health at an alarming pace, putting over forty thousand holes in the heads of nearly a hundred mice. That’s how we know: Raw milk, great for the head. Vaccines, bad for the head. The Epstein list doesn’t exist. And holes: very bad for the head, especially mine.
