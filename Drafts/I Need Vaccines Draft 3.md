@@ -4,9 +4,9 @@ This used to be a happy nation—a healthy nation. Back in my day, children didn
 
 My point is: I need vaccines like I need a hole in my head—and because I do not need vaccines, I do not need a hole in my head. So forget I mentioned that last part.
 
-We did things right back then. Regulations? Didn’t need ‘em. The rivers were so clean you could really taste the lead in the pipes, and it built character! The lead in our gasoline caused some problems, I’ll give you that. But if you ask me, the biggest lead problem was using it to create holes in the heads of public servants with powerful familiar influence, as if failing to understand that the head already has several holes.
+We did things right back then. Regulations? Didn’t need ‘em. The rivers were so clean you could really taste the lead in the pipes, and it built character! The lead in our gasoline caused some problems, I’ll give you that. But if you ask me, the biggest lead problem was using it to create holes in the heads of public servants with powerful family influence, as if failing to understand that the head already has several holes.
 
-Two ears, two nostrils, one mouth. Those are the main holes. The eyes, they’re kind of like holes, in that they close and open. If you shoot someone in the head, their eyes won’t open or close anymore, so while you have created one hole, you’ve effectively removed two others, and thus have failed to create additional holes after all. 
+Two ears, two nostrils, one mouth. Those are the main holes. The eyes, they’re kind of like holes, in that they close and open. If you shoot someone in the head, their eyes won’t open or close anymore, so really, you're losing holes
 
 I get that you’re curious about what’s inside the skull of an ultra healthy genius who looks and talks like a totally normal human. And you’re probably so loaded up on antidepressants, you’re itching to give his noggin an inquisitive yet forceful boop. But it’s not like there’s a limited edition Happy Meal toy in there. Nor will candy burst from my skull if struck with a barrage of nails from a t-shirt cannon.
 
