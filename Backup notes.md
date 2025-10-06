@@ -25,7 +25,6 @@ Programs:
 	- logitech ghub
 	- nordvpn
 	- notepad++
-	- notepad++
 	- nzxt cam
 	- obsidian
 	- qBittorent
