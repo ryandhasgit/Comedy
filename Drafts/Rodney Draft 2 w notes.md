@@ -7,9 +7,8 @@ scott didn't mentioend length as aproblem, so maybe i'll keep that
 
 by Ryan David
 
-My wife, I tell ya. She's something. I 
-
-She and I never have sex. The other day I wanted to do foreplay. She said, you're lucky to be getting one-play!
+My wife, I tell ya, she's something. I said, "Hey Honey, wanna move this to bed?" And she said, "Sure sweetie, if it's your deathbed!
+You rotten SOB
 
 I get no respect. Like that song, R-E-S-P-E-C-T. You ever notice how it sounds like there’s no E? Just R-E-S-P-C-T? That’s the kind of respect I get. I tell ya.
 
