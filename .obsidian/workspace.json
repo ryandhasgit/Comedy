@@ -170,82 +170,15 @@
       "github-sync:Sync with Remote": false
     }
   },
-  "floating": {
-    "id": "3c4e18340fcf1594",
-    "type": "floating",
-    "children": [
-      {
-        "id": "1e34d4bdfdb3ad5a",
-        "type": "window",
-        "children": [
-          {
-            "id": "90705f6b2b3686ab",
-            "type": "tabs",
-            "children": [
-              {
-                "id": "6e90a29292e00b07",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Clippings/More Structures for Short Humor—So Many More.md",
-                    "mode": "source",
-                    "source": false
-                  },
-                  "icon": "lucide-file",
-                  "title": "More Structures for Short Humor—So Many More"
-                }
-              },
-              {
-                "id": "bf51b666c52cd93f",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Dikkers/Accountability/Sept Goals.md",
-                    "mode": "source",
-                    "source": false
-                  },
-                  "icon": "lucide-file",
-                  "title": "Sept Goals"
-                }
-              },
-              {
-                "id": "f4db9c7795ce4252",
-                "type": "leaf",
-                "state": {
-                  "type": "markdown",
-                  "state": {
-                    "file": "Dikkers/Accountability/Sept Accountability.md",
-                    "mode": "source",
-                    "source": false
-                  },
-                  "icon": "lucide-file",
-                  "title": "Sept Accountability"
-                }
-              }
-            ]
-          }
-        ],
-        "direction": "vertical",
-        "x": -929,
-        "y": 0,
-        "width": 929,
-        "height": 1080,
-        "maximize": true,
-        "zoom": 0
-      }
-    ]
-  },
-  "active": "eeca035a49b6f0a7",
+  "active": "e324e6ed3f4fa801",
   "lastOpenFiles": [
-    "Untitled.md",
+    "Dikkers/Accountability/Sept Accountability.md",
+    "Dikkers/Accountability/Sept Goals.md",
     "Clippings/More Structures for Short Humor—So Many More.md",
+    "Untitled.md",
     "Dikkers/Accountability/Oct Accountability.md",
     "Dikkers/Accountability/Oct -Sept Retro.md",
-    "Dikkers/Accountability/Sept Goals.md",
     "Headlines/Headlines_10A-25.md",
-    "Dikkers/Accountability/Sept Accountability.md",
     "Dikkers/Funny In A Flash/Funny In A Flash 1.md",
     "Dikkers/Funny In A Flash/Feedback live.md",
     "Dikkers/Funny In A Flash",
