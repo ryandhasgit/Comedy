@@ -16,7 +16,7 @@ i'll have what she's having
 
 i won't have what she's having
 
-ouch! that's gotta hurt!
+that's gotta hurt!
 
 no grandma!
 
@@ -72,6 +72,22 @@ this guy's got a gun! oh wait that's bruce willis
 
 luke i am your father
 
-oh he's
+oh he's gonna die
+
+it's fine, they all survive
+
+it's fine, they all die
+
+that's not his real nose
+
+who's the actor?
+
+do we like him?
+
+taxi!
+
+popcorn?
+
+
 
 Maybe the piece all along is just shit his mom said or friend
