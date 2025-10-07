@@ -20,6 +20,13 @@ Refreshments are not available for sale, because you would spill your guts from 
 
 If you need assistant, please press the big red button that sayas "DO NOT TOUCH"
 
+Refreshments are for sale, as are plastic skeletons
+kitty masks
+hello kitty masks
+witch hats
+bunny ears
+a broom
+
 
 
 (so it's a haunted house? or it's a costume palce)
