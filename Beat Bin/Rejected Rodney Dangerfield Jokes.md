@@ -161,6 +161,10 @@ my wife, i tell ya, we never have sex.
 
 my wife, i tell ya, she gives me no respect. i said, hey hun, how about i take ya out tonight? she said, with waht money? 
 
+My wife's a terrible driver. She can't keep her eyes on the road. I told her to pretend it's any man but me, and she threatened to boil my head. The first promise I thought she'd actually keep!
+
+My wife, lemme tell ya. She never wants to have sex. Hell, even dog won't kiss me and he's always licking his balls. But I guess main ain't good enough. Anybody? Anybody?
+
 
 --------
 
