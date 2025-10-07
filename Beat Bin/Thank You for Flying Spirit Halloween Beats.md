@@ -16,4 +16,10 @@ There are no snakes on this plane.
 
 This flight is haunted—by travel points from every 1,000 miles flown or crashed! These perks will chase you to your grave, if that grave happens to be within 5 months, after which they expire.
 
-Refreshments are available for sale 
+Refreshments are not available for sale, because you would spill your guts from terror!
+
+If you need assistant, please press the big red button that sayas "DO NOT TOUCH"
+
+
+
+(so it's a haunted house? or it's a costume palce)
