@@ -59,4 +59,8 @@ new turn signals
 flying car traffic rules 
 updated traffic rules 
 
-comets 
+comets crashing into earth, read all about it
+extra extra read all about it
+
+dinner menu for schmucks
+dinner menu at cannibal cafe
