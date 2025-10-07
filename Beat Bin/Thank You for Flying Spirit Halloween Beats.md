@@ -10,4 +10,8 @@ Tampering with the smoke detectors in our lavatories is a federal crime. Use the
 
 Don't say beetlejuice three times. He won't leave and it is very annoying.
 
-The pilot would like to inform you that 
+The pilot would like to inform you that all of you are going to die.
+
+There are no snakes on this plane.
+
+This flight is haunted---by 
