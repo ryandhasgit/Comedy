@@ -14,4 +14,6 @@ The pilot would like to inform you that all of you are going to die.
 
 There are no snakes on this plane.
 
-This flight is haunted---by 
+This flight is haunted—by travel points from every 1,000 miles flown or crashed! These perks will chase you to your grave, if that grave happens to be within 5 months, after which they expire.
+
+Refreshments are available for sale 
