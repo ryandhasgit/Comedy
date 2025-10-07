@@ -70,6 +70,8 @@ stop sucking each other's lips
 
 this guy's got a gun! oh wait that's bruce willis
 
+luke i am your father
 
+oh he's
 
 Maybe the piece all along is just shit his mom said or friend
