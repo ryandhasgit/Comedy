@@ -77,3 +77,8 @@ walmart missed connections
 airport romantic missed connections
 romantic airport missed connections
 
+DMV missed connections
+missed connections at the nba allstar game
+missed connections from st patties day
+missed connections from purim
+
