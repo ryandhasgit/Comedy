@@ -31,6 +31,7 @@ can do hr
 can do secretary work
 can clean toilets 
 detail oriented 
+has a sense of humor
 
 office relationships prohibited 
 won’t be seduced by poison ivy
@@ -51,6 +52,14 @@ agile trained
 ignores when batman flubs a catchphrase or accidentally clubs an innocent civilian thinking it’s the joker 
 the joker has dressed up as a person 
 doesn’t use Batman’s bathroom
+BAThroom
+won't disturb batman during naptime
+answers calls
+good communication skills
+good at deciphering ransom notes
+great with riddles
+will help set up company picnics
+doesn't ask too mah
 doesn’t mind enclosed, windowless caves
 won’t make jokes about it being a Bat Man-Cave
 isn’t afraid of bats
@@ -58,6 +67,7 @@ isn’t afraid of cat woman (list other villains and archetypes )
 can say “oh gee batman” 
 is invulnerable to piercing 
 will wander into traps like a guinea pig or coal mine canary 
+
 ideal:
 skills:
 
@@ -80,6 +90,9 @@ likes billionaires
 is named Robin
 Job responsibilities  
 cleaning toilets 
+
+ending:
 is unpaid
 payment is fulfillment for building a safe gotham
 payment is fulfilling the mission 
+(note: position is unpaid)
