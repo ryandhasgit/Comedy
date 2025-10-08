@@ -13,3 +13,8 @@ put up some pictures
 clean kitchen
 clean bathroom
 candles
+put compute together
+vaccum
+floors
+clothing reorganization
+notificaitons
