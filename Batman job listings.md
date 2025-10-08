@@ -59,7 +59,17 @@ good communication skills
 good at deciphering ransom notes
 great with riddles
 will help set up company picnics
-doesn't ask too mah
+inquisitive self-starter /
+self-starter
+
+will stare at the sky for hours a time looking for a signal in the sky 
+knows adobe illustrator and has 2 years of experience in graphic design
+
+attended an accredited school for side-kicking
+for bomb defusing
+for boomerang dodging
+doesn't ask too many questions
+
 doesn’t mind enclosed, windowless caves
 won’t make jokes about it being a Bat Man-Cave
 isn’t afraid of bats
