@@ -1,5 +1,4 @@
 
-The “Masked Crusader” is currently looking for self-starters who match the following criteria:
+The “Masked Crusader” is currently looking for self-starters who can fill the roll of side kick—a prominent but vice presidential-like role, mostly a figurehead, to comically fail and drive plot through conflict. 
 
-SIDE-Kick WANTED: 
-
+Job realities 
