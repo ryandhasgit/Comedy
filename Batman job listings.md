@@ -58,6 +58,18 @@ answers calls
 good communication skills
 good at deciphering ransom notes
 great with riddles
+good at riddles
+problem solver
+proactively responds to urgent situations rather than waits for issues to present themselves
+
+is fine with the public occasionally turning on them
+good liar
+won't tell loved ones what they do
+DoD clearance
+regular polygraph tests
+
+can take a joke
+
 will help set up company picnics
 inquisitive self-starter /
 self-starter
