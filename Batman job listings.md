@@ -70,6 +70,13 @@ for bomb defusing
 for boomerang dodging
 doesn't ask too many questions
 
+won't fall for phishing scams
+won't make long distance calls on the batphone
+bat internet (more bat puns)
+organize office birthdays
+buy birthday cakes
+run errands (more petty work)
+
 doesn’t mind enclosed, windowless caves
 won’t make jokes about it being a Bat Man-Cave
 isn’t afraid of bats
@@ -81,9 +88,19 @@ will wander into traps like a guinea pig or coal mine canary
 ideal:
 skills:
 
+can use AI without being swayed by sentient computers
+can use AI 
+is not an AI
+can pass the turing test
+can pass a captcha
+
 phrases should be famialrir withd 
 can say “lookout!”
+aw shucks
 
+won't hum "dunnununununun"
+
+liaise with police
 won’t upstage batman’s glory 
 proficient in excel 
 
