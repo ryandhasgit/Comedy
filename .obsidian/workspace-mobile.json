@@ -105,9 +105,23 @@
               "icon": "lucide-file",
               "title": "melissa job"
             }
+          },
+          {
+            "id": "ac4b4366866c406d",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Batman job listings.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Batman job listings"
+            }
           }
         ],
-        "currentTab": 6
+        "currentTab": 7
       }
     ],
     "direction": "vertical"
@@ -238,10 +252,11 @@
       "bases:Create new base": false
     }
   },
-  "active": "ac21da8ac38d3f84",
+  "active": "ac4b4366866c406d",
   "lastOpenFiles": [
-    "Headlines/Votes_9E-25.png",
+    "Batman job listings.md",
     "melissa job.md",
+    "Headlines/Votes_9E-25.png",
     "Beat Bin/Thank You for Flying Spirit Halloween Beats.md",
     "Beat Bin/Crowded Theatre Beats.md",
     "Random/i wish ii could go back and tell mislead it gets dumbed.md",
