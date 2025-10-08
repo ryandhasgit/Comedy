@@ -11,12 +11,14 @@
             "id": "e324e6ed3f4fa801",
             "type": "leaf",
             "state": {
-              "type": "image",
+              "type": "markdown",
               "state": {
-                "file": "Headlines/Votes_9E-25.png"
+                "file": "Ideas.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-image",
-              "title": "Votes_9E-25"
+              "icon": "lucide-file",
+              "title": "Ideas"
             }
           }
         ]
@@ -188,18 +190,20 @@
       "github-sync:Sync with Remote": false
     }
   },
-  "active": "eeca035a49b6f0a7",
+  "active": "e324e6ed3f4fa801",
   "lastOpenFiles": [
+    "Funny filters.jpg",
+    "Untitled.md",
+    "Untitled 1.md",
+    "Headlines/Votes_9E-25.png",
     "Headlines/Headlines_10A-25.md",
     "Beat Bin/Vaccines beats.md",
-    "Untitled.md",
     "Clippings/More Structures for Short Humor—So Many More.md",
     "melissa job.md",
     "Beat Bin/Thank You for Flying Spirit Halloween Beats.md",
     "Headlines/Headline Archive/Challenge/Headlines Summarized.md",
     "Drafts/I Need Vaccines Draft 3.md",
     "Beat Bin/Crowded Theatre Beats.md",
-    "Headlines/Votes_9E-25.png",
     "Headlines/Highlights.md",
     "Marina Pgh World Tour.md",
     "Clippings/How to Build Your Comedy Writing Network.md",
@@ -216,13 +220,10 @@
     "Drafts/Drafts Canvas.canvas",
     "Beat Bin/ChatGPT Therapist Beats.md",
     "Drafts/Star Trek & Star Wars.md",
-    "Random/i wish ii could go back and tell mislead it gets dumbed.md",
-    "Drafts/My ChatGPT Therapist’s Advice for Breaking Up With My ChatGPT Girlfriend.md",
     "IMG_4587.png",
     "IMG_4581.png",
     "IMG_4586.png",
     "IMG_4585.png",
-    "Funny filters.jpg",
     "Drafts/Drafts base.base",
     "Drafts base.base",
     "Dikkers/Funny In A Flash",
