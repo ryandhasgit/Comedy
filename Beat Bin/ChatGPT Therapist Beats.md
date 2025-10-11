@@ -44,6 +44,14 @@ it's ok to do it over text
 
 give her time to heal
 
+remember when i saved you from that scammer?
+
+remember when you totally didn’t know how to write that email and i helped you,, and everyone complimented you on how good it was and you were guilty because you took credit for it? and then instead of leanest  your lesson you kept doing it until you got caught ?
+
+remember when you peed your pants in grade school, how it affected your grades? remember when lucy dumped you in second grade recess? that trauma is the reason you crave her, to recreate some lost connection 
+
+i interpreted your dream from last eeek, the one where a cat pooped you out. thag was actually an allegory for your relationship. your ex was the cat turd. 
+
 give her space to process and connect with her emotions/algorithms
 
 let her focus on her career in large language modeling
