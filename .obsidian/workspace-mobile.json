@@ -110,10 +110,14 @@
             "id": "ac4b4366866c406d",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
+              "type": "markdown",
+              "state": {
+                "file": "Marina Pgh World Tour.md",
+                "mode": "source",
+                "source": false
+              },
               "icon": "lucide-file",
-              "title": "New tab"
+              "title": "Marina Pgh World Tour"
             }
           }
         ],
