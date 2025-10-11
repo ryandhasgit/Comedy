@@ -121,3 +121,12 @@ performance reviews for the friends from friends
 
 an oral history of jonah and a whale as recreated on seinfeld
 of kramer getting eaten by a whale (play on golfing episode )
+
+protest signs from my aging organs #candidate 
+
+protest signs for sickly wolves 
+for sickly wolves with dysentery
+for sickly wolves who ate too much soup
+for sickly wolves who come into work anyway because they don’t  have enough time off 
+
+i used a vacation day and the world did stop spinning #candidate 
