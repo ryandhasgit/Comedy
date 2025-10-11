@@ -212,13 +212,13 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Headlines/Headlines_10A-25.md",
+            "file": "Beat Bin/Crowded Theatre Beats.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
             "showSearch": false,
             "searchQuery": "",
-            "backlinkCollapsed": false,
+            "backlinkCollapsed": true,
             "unlinkedCollapsed": true
           },
           "icon": "links-coming-in",

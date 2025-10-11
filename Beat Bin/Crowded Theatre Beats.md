@@ -29,23 +29,34 @@ earthquake
 
 he's got a gun!
 
-wait was that gunshot real?
+ was that gunshot real?
 
 you guys, i think someone has a gun
 
 oh wait, sorry, that was the movie
+oh that was the movie? 
 
 oh my god, did you hear that? it sounded like a gun. oh my god. it's like aurora. we're screwed. my god. oh wait, that was the movie
 
+i’ll have what she’s having! 
+
+what is she having? because that smalls too good to be popcorn
+
+seriously, i could go for some popcorn. i mean, the previews to these movies are so long i was basically half through mine by the time they movie started. and it’s just so  good how do you resist? oh sorry, i didn’t realize you were watching  
+
 giraffe! 
 
-no really, a giraffe! how did it even get in here? damn these theatres and their vaulted (?) ceilings 
+no really, a giraffe! how did it even get in here? damn these theatres and their vaulted (?) ceilings (jurassic park allegory?) everyone stay calm. giraffes are drawn to movement. if we stand still they won’t see us 
 
-everyone stay calm. giraffes are drawn to movement. if we stand still they won’t see us did someone’s phone just go off? didnt you see the preview saying to silence our phones? did that coca cola bears snow boarding mean nothing to you? 
+did someone’s phone just go off? didnt you see the preview saying to silence our phones? did that coca cola bears snow boarding mean nothing to you? 
 
-it’s come right at us, run! why is nobody running? of course i’m going to stay here and hold down the fort. someone has to make sure you all make it out alive. this captain is going down with the ship. women and children, go go go. and there’s no time to take anything with you, be it purses or popcorn, or good n plenty, butter fingers, dots and, did i say pop corn? yep, leave it all behind. get outta here. why is nobody budging? don’t tell me that im the only one who sees the giraffe. well, trust me it’s there and its mean, and because of the tall ceilings, as i said earlier, this thing has free reign 
+it’s come right at us, run! why is nobody running? of course i’m going to stay here and hold down the fort. someone has to make sure you all make it out alive. this captain is going down with the ship. women and children, go go go. and there’s no time to take anything with you, be it purses or popcorn, or good n plenty, butter fingers, dots and, did i say pop corn? yep, leave it all behind. get outta here. why is nobody budging? don’t tell me that im the only one who sees the giraffe. well, trust me it’s there and its mean, and because of the tall ceilings, as i said earlier, this thing has free rein.  
 
 wait are you recording this?
+
+what do you mean, “security is on their way?” you realize that a single giraffe can take at least a dozen armed humans, right? didn’t you ever do that exercise, who would win ina  fight?  you’d need a team of navy seals to take this neck horse down, or according to reddit (at least), 37 seals. 
+
+wait, why are you writing this all down? 
 help! 
 
 do you think they're friends in real life?
@@ -103,3 +114,5 @@ popcorn?
 
 
 Maybe the piece all along is just shit his mom said or friend
+
+the piece is him trying to get people to leave the theatre so he says all these things 
