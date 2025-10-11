@@ -86,3 +86,17 @@ other tv show reboot commercials (the office whatever)
 
 more celebrities sports in commercials they do not belong 
 cameos 
+
+--- 
+2020 nostalgia themed party 
+
+is it too soon to start decorating your thanksgiving tree? 
+is it too soon to start decorating t your channukah bush?
+channukah bush hairstyles explained 
+jesus, carpenter, bush
+jesus’ had a bush?
+
+did jesus have a bush, and other questions that got me kicked out of catholic school
+and other questions that resulted in a nun beating me unconscious 
+nuns beating me unconscious 
+
