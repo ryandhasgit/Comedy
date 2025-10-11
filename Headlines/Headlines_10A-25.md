@@ -100,3 +100,18 @@ did jesus have a bush, and other questions that got me kicked out of catholic sc
 and other questions that resulted in a nun beating me unconscious 
 nuns beating me unconscious 
 
+dog hairstyles for your cat 
+cat hairstyles for your dog 
+car hairstyles for you ferret 
+ferret hairstyles for you shoes 
+
+shoe a shoe-in for your feet
+shoe wins best clothing item for your foot, tenth year in a  row
+
+The oscar’s: ranking the best cats named oscar of all time 
+
+baseball, not just for children anymroe 
+
+i’m too bit for this little league 
+big leagues now big boy leagues 
+
